@@ -1,0 +1,19 @@
+SalesMag Version 1.2 (New Features) – 14 November 2021
+
+Fixed: Knowledge Base FAQ Section Not Showing
+
+New: All New Product Review Support
+New: Top 3 Recommendations for Affiliate Articles
+New: 404 Page Design
+
+–––––––––––––––––––––––––––––––––––––––––––––––––––
+
+SalesMag Version 1.1 (Major Fixes) – 11 November 2021
+
+Fixed: knowledge-base article publishing
+Fixed: pages publishing
+Fixed: featured image toggle
+
+New: Custom HTML Shortcode
+New: Contact Form Shortcode
+

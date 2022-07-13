@@ -1,0 +1,67 @@
+footerText = "**Email us at: info.worthknow (at) gmail.com if you have any Queries :)**"
+logo = "/uploads/worthknow-logo.svg"
+icon = "/uploads/worthknow-logo-1-.svg"
+tagline = "The Net Worth of the Richest People in the World"
+contacteMail = "info.worthknow@gmail.com"
+scroll_section = []
+headerText = "**Email us at: info.worthknow (at) gmail.com if you have any Queries :)**"
+
+[fonts]
+bodyFont = "Open Sans"
+heading = "Open Sans"
+
+[home_section]
+section1 = "Style 2"
+section1Cat = "Projector Guides"
+section2 = "Style 2"
+section2Cat = "Camera Guides"
+section3 = "Style 1"
+section3Cat = "Laptop Guides"
+section4 = "Style 1"
+section4Cat = "Chair Guides"
+
+[colors]
+mainColor = "#1d40bf"
+textColor = "#fffcfc"
+linkColor = "#3989d4"
+ctaColor = "#d4a341"
+
+[open_graph]
+meta_Description = "Find out who are the richest people in the world on WorthKnow.com a website dedicated to helping you learn about net worth and influential people around the globe."
+image = ""
+FacebookPublisher = ""
+
+[verifications]
+googleSiteVerify = "qEp68ZGVR8teJdTZ1CgjtBQoJjABRTIwvzYYhEGsvls"
+
+[social_accounts]
+sitefbAccount = ""
+sitetwitterAccount = ""
+siteinstagramAccount = ""
+sitepinterestAccount = ""
+siteYouTubeAccount = ""
+
+[[img_section]]
+imgcat = "Actors"
+
+[[img_section]]
+imgcat = "Rapper"
+
+[[img_section]]
+imgcat = "Singer"
+
+[[img_section]]
+imgcat = "Writer"
+
+[[img_section]]
+imgcat = "Richest Celebrities"
+
+[post_setting]
+featuredImage = false
+featured_img = false
+show_comments = true
+
+[home_setting]
+headerStyle = "Group Navigation"
+headerText = "**Email us at info.worthknow (at) gmail.com if you have any Queries**"
+footerText = "**Email us at info.worthknow (at) gmail.com if you have any Queries**"

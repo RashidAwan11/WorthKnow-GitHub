@@ -77,9 +77,9 @@ Malki is a Hebrew word that means "king".
 
 Malki was born in Los Angeles, California, to a Jewish family. His father, who is of Russian descent, is a real estate developer and his mother, who is of Austrian descent, is a homemaker. Malki has one younger sister.
 
-Malki attended the University of California at Los Angeles (UCLA), where he studied business administration and political science. He then attended the Hebrew Union College-Jewish Institute of Religion in Jerusalem, Israel, where he received his rabbinic ordination.
+Malki attended the University of California at Los Angeles (UCLA), where he studied business administration and political science. He then attended the Hebrew Union College-Jewish Institute of Religion in Jerusalem, Israel, where he received his rabbinic ordination. After returning to the United States, Malki worked as a rabbi for several years before entering into politics. In 2002, he was elected to the Los Angeles City Council, where he served one term.
 
-After returning to the United States, Malki worked as a rabbi for several years before entering into politics. In 2002, he was elected to the Los Angeles City Council, where he served one term.
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YYbc6r9GlJY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Malki Means King Personal life:**
 

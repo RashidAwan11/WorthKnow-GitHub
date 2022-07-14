@@ -37,7 +37,7 @@ faqs:
         <td>
           <strong>Date of Birth</strong>
         </td>
-        <td>17 December 1977</td>
+        <td> October 9, 1967</td>
       </tr>
       <tr>
         <td>

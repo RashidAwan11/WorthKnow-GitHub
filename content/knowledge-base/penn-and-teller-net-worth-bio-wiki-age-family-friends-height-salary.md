@@ -5,7 +5,7 @@ draft: true
 trending: false
 trendname: Penn And Teller
 seo_title: Penn And Teller Net Worth, Bio, Wiki, Age, Family, Friends, Height &
-  Salary -  Wothknow
+  Salary -  Worthknow
 meta_Description: Penn and Teller are a unique team of magicians. They have a
   successful stage show, several books, and they've even had their own TV
   series.

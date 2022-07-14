@@ -119,9 +119,9 @@ Keisha Lance Bottoms is best known for her work as the 60th mayor of Atlanta, Ge
 
 ## **Keisha Lance Bottoms Social Media:**
 
-* Twitter account is with the user name of <a href="https://bbquing.com" target="_blank" rel="nofollow" rel="noopener">Outputs</a>
-* Instagram account is with the user name of <a href="https://bbquing.com" target="_blank" rel="nofollow" rel="noopener">Outputs</a>
-* Facebook account is with the user name of <a href="https://bbquing.com" target="_blank" rel="nofollow" rel="noopener">Outputs</a>
+* Twitter account is with the user name of <a href="https://twitter.com/keishabottoms" target="_blank" rel="nofollow" rel="noopener">@KeishaBottoms</a>
+* Instagram account is with the user name of <a href="https://www.instagram.com/keishabottoms/" target="_blank" rel="nofollow" rel="noopener">keishabottoms</a>
+* Facebook account is with the user name of <a href="https://www.facebook.com/keisha.bottoms" target="_blank" rel="nofollow" rel="noopener">Keisha Lance Bottoms </a>
 
 ## **Keisha Lance Bottoms Hobbies:**
 

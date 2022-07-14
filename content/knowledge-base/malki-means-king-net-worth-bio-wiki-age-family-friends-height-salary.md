@@ -12,8 +12,8 @@ meta_Description: Malki was born in Los Angeles, California, to a Jewish family.
 meta_Keywords: Malki Means King Net Worth
 url: malki-means-king-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
-date: 2022-07-14T10:08:51.188Z
-updateDate: 2022-07-14T10:08:51.218Z
+date: 2022-07-14T10:41:26.919Z
+updateDate: 2022-07-14T10:41:16.892Z
 categories:
   - Artist
 faqs:

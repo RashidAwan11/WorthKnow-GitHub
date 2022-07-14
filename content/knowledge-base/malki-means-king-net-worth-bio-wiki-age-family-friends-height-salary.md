@@ -133,9 +133,9 @@ Malki is a great name for a boy because it symbolizes strength, leadership, and 
 
 ## **Malki Means King Social Media:**
 
-* Twitter account is with the user name of
-* Instagram account is with the user name of
-* Facebook account is with the user name of
+* Twitter account is with the user name of <a href="https://bbquing.com" target="_blank" rel="nofollow" rel="noopener">Outputs</a>
+* Instagram account is with the user name of <a href="https://bbquing.com" target="_blank" rel="nofollow" rel="noopener">Outputs</a>
+* Facebook account is with the user name of <a href="https://bbquing.com" target="_blank" rel="nofollow" rel="noopener">Outputs</a>
 
 ## **Malki Means King Hobbies:**
 

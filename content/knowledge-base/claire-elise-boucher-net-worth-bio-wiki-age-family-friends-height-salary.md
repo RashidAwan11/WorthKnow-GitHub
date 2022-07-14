@@ -126,9 +126,8 @@ A classically trained pianist, Boucher began making music in her teens and relea
 
 ## **Claire Elise Boucher Social Media:**
 
-* Twitter account is with the user name of <a href="https://bbquing.com" target="_blank" rel="nofollow" rel="noopener">Outputs</a>
-* Instagram account is with the user name of <a href="https://bbquing.com" target="_blank" rel="nofollow" rel="noopener">Outputs</a>
-* Facebook account is with the user name of <a href="https://bbquing.com" target="_blank" rel="nofollow" rel="noopener">Outputs</a>
+* Twitter account is with the user name of <a href="https://twitter.com/grimezsz" target="_blank" rel="nofollow" rel="noopener">𝔊𝔯𝔦𝔪𝔢𝔰 (⌛️,⏳) ᚷᚱᛁᛗᛖᛋ</a>
+* Instagram account is with the user name of <a href="https://www.instagram.com/grimes/" target="_blank" rel="nofollow" rel="noopener">grimes</a>
 
 ## **Claire Elise Boucher Hobbies:**
 

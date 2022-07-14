@@ -131,9 +131,9 @@ Penn and Teller were honored with a star on the Hollywood Walk of Fame in 2013.
 
 ## **Penn And Teller Social Media:**
 
-* Twitter account is with the user name of <a href="https://bbquing.com" target="_blank" rel="nofollow" rel="noopener">Outputs</a>
-* Instagram account is with the user name of <a href="https://bbquing.com" target="_blank" rel="nofollow" rel="noopener">Outputs</a>
-* Facebook account is with the user name of <a href="https://bbquing.com" target="_blank" rel="nofollow" rel="noopener">Outputs</a>
+* Twitter account is with the user name of <a href="https://twitter.com/pennjillette" target="_blank" rel="nofollow" rel="noopener">@pennjillette</a>
+* Instagram account is with the user name of <a href="https://www.instagram.com/pennandtellerlive/" target="_blank" rel="nofollow" rel="noopener">pennandtellerlive</a>
+* Facebook account is with the user name of <a href="https://www.facebook.com/PennAndTeller" target="_blank" rel="nofollow" rel="noopener">Penn & Teller </a>
 
 ## **Penn And Teller Hobbies:**
 

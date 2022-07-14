@@ -93,17 +93,12 @@ As a professional career, Malki is associated with many different fields. For ex
 
 ## **Malki Means King Facts:**
 
-1. Malki is a Hebrew word that means "king".
-
-2. Malki was born in Los Angeles, California, to a Jewish family.
-
-3. Malki has one younger sister.
-
-4. Malki attended the University of California at Los Angeles (UCLA), where he studied business administration and political science.
-
-5. Malki then attended the Hebrew Union College-Jewish Institute of Religion in Jerusalem, Israel, where he received his rabbinic ordination.
-
-6. Malki is married to Laura Means and they have three children together.
+* Malki is a Hebrew word that means "king".
+* Malki was born in Los Angeles, California, to a Jewish family.
+* Malki has one younger sister.
+* Malki attended the University of California at Los Angeles (UCLA), where he studied business administration and political science.
+* Malki then attended the Hebrew Union College-Jewish Institute of Religion in Jerusalem, Israel, where he received his rabbinic ordination.
+* Malki is married to Laura Means and they have three children together.
 
 ## **How Old is Malki Means King?**
 
@@ -127,15 +122,14 @@ Malki Means King is married.
 
 ## **Malki Means King Achievements:**
 
-Malki means "King" in Hebrew. It is also the name of an achievement program in Israel for outstanding students from low-income families. The program provides scholarships, mentorship, and other support to help these students reach their potential and become leaders in their communities.
-
-Malki is a great name for a boy because it symbolizes strength, leadership, and excellence. These are all qualities that every boy should aspire to achieve. I'm sure your son will be proud to carry such an impressive name and will work hard to live up to its meaning. 
+* Malki means "King" in Hebrew. It is also the name of an achievement program in Israel for outstanding students from low-income families. The program provides scholarships, mentorship, and other support to help these students reach their potential and become leaders in their communities.
+* Malki is a great name for a boy because it symbolizes strength, leadership, and excellence. These are all qualities that every boy should aspire to achieve. I'm sure your son will be proud to carry such an impressive name and will work hard to live up to its meaning. 
 
 ## **Malki Means King Social Media:**
 
-* Twitter account is with the user name of <a href="https://bbquing.com" target="_blank" rel="nofollow" rel="noopener">Outputs</a>
-* Instagram account is with the user name of <a href="https://bbquing.com" target="_blank" rel="nofollow" rel="noopener">Outputs</a>
-* Facebook account is with the user name of <a href="https://bbquing.com" target="_blank" rel="nofollow" rel="noopener">Outputs</a>
+* Twitter account is with the user name of <a href="https://twitter.com/malkimeanskingm" target="_blank" rel="nofollow" rel="noopener">@MalkiMeansKing</a>
+* Instagram account is with the user name of <a href="https://www.instagram.com/malkimeansking/" target="_blank" rel="nofollow" rel="noopener">malkimeansking</a>
+* Facebook account is with the user name of <a href="https://www.facebook.com/malkimeansking/" target="_blank" rel="nofollow" rel="noopener">Malki Means King</a>
 
 ## **Malki Means King Hobbies:**
 

@@ -12,8 +12,8 @@ meta_Description: Keisha Lance Bottoms is the current Mayor of Atlanta, and she
 meta_Keywords: Keisha Lance Bottoms Net Worth
 url: keisha-lance-bottoms-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
-date: 2022-07-14T10:41:39.752Z
-updateDate: 2022-07-14T10:41:39.780Z
+date: 2022-07-14T11:12:10.851Z
+updateDate: 2022-07-14T11:12:10.386Z
 categories:
   - politicians
 ---
@@ -71,6 +71,8 @@ Keisha Lance Bottoms is the current Mayor of Atlanta, and she has quite a net wo
 Keisha Lance Bottoms is an American politician who is the Mayor of Atlanta, Georgia. She was elected on December 5, 2017, and took office on January 2, 2018.
 
 Bottoms is a member of the Democratic Party. She served on the Atlanta City Council from 2010 to 2017. In 2013, she was chosen as council president. She ran for mayor in 2017 and narrowly defeated Mary Norwood in a runoff election to become Atlanta's 60th mayor.
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pbVFkbhW1oE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Keisha Lance Bottoms Personal life:**
 

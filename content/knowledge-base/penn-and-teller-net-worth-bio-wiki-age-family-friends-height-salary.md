@@ -28,14 +28,14 @@ faqs:
           <strong>Net Worth</strong>
         </td>
         <td>
-          <strong>$5 million</strong>
+          <strong>$330 million</strong>
         </td>
       </tr>
       <tr>
         <td>
           <strong>Date of Birth</strong>
         </td>
-        <td>17 December 1977</td>
+        <td>February 14, 1948</td>
       </tr>
       <tr>
         <td>
@@ -47,13 +47,13 @@ faqs:
         <td>
           <strong>Height:</strong>
         </td>
-        <td>6 Feet 2 In</td>
+        <td>1.75 m</td>
       </tr>
       <tr>
         <td>
           <strong>Profession</strong>
         </td>
-        <td>Business Person</td>
+        <td>Actor</td>
       </tr>
       <tr>
         <td>
@@ -76,6 +76,8 @@ Penn & Teller are magicians and entertainers who have been fascinating audiences
 Born in Philadelphia in 1955, Penn Jillette (real name Penn Fraser Jillette) is the taller and more outgoing half of the duo. He met his partner Teller (real name Raymond Joseph Teller) while both were studying at the Occidental College in Los Angeles. The two quickly hit it off, and they began to develop a unique act that combined magic and comedy.
 
 After graduating from college, Penn & Teller moved to New York City, where they quickly became fixtures on the underground performance scene. They began to develop a cult following, and in 1981 they made their Broadway debut with the critically acclaimed show Penn & Teller: Off Broadway.
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJhQKw2xZIM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Penn And Teller Personal life:**
 

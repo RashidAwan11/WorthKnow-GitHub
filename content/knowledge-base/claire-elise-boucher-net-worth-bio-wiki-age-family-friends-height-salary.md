@@ -75,9 +75,9 @@ Claire Boucher, better known by her stage name Grimes, is a Canadian singer, son
 
 Claire Elise Boucher, better known by her stage name Grimes, is a Canadian musician, singer, songwriter, record producer and visual artist. Born and raised in Vancouver, she first began recording music in 2007 and released her debut album, Geidi Primes, in 2010. Grimes' breakthrough came with the release of her third studio album, Visions (2012), which reached number two on the US Billboard 200 and was certified gold in Canada.
 
-Grimes' fourth studio album, Art Angels (2015), reached number one on the US Billboard 200 making Grimes the first non-Major label independent artist to do so and was nominated for Album of the Year at the 2016 Juno Awards. She has since released the singles "Venus Fly" (with Janelle Monáe) and "Kill V. Maim".
+Grimes' fourth studio album, Art Angels (2015), reached number one on the US Billboard 200 making Grimes the first non-Major label independent artist to do so and was nominated for Album of the Year at the 2016 Juno Awards. She has since released the singles "Venus Fly" (with Janelle Monáe) and "Kill V. Maim". Grimes' music has been praised for its experimental and avant-garde style, as well as its eclectic mix of genres such as dream pop, synth-pop, R&B, hip hop and electronic music.
 
-Grimes' music has been praised for its experimental and avant-garde style, as well as its eclectic mix of genres such as dream pop, synth-pop, R&B, hip hop and electronic music.
+<iframe width="560" height="315" src="https://www.youtube.com/embed/b1nz0IhWPRs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Claire Elise Boucher Personal life:**
 

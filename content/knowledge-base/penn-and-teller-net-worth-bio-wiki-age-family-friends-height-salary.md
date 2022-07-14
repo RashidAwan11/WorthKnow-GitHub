@@ -12,8 +12,10 @@ meta_Description: Penn and Teller are a unique team of magicians. They have a
 meta_Keywords: Penn And Teller Net Worth
 url: penn-and-teller-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
-date: 2022-07-14T09:27:25.765Z
-updateDate: 2022-07-14T09:27:25.794Z
+date: 2022-07-14T10:08:36.064Z
+updateDate: 2022-07-14T10:08:35.102Z
+categories:
+  - Actors
 faqs:
   - question: What is the net worth of Penn And Teller?
     answer: The estimated net worth of Penn & Teller is $330 million.

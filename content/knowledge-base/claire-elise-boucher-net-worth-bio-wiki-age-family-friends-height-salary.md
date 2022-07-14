@@ -2,7 +2,7 @@
 title: Claire Elise Boucher Net Worth, Bio, Wiki, Age, Family, Friends, Height &
   Salary
 type: knowledge-base
-draft: true
+draft: false
 trending: false
 trendname: Claire Elise Boucher
 seo_title: Claire Elise Boucher Net Worth, Bio, Wiki, Age, Family, Friends,
@@ -12,8 +12,9 @@ meta_Description: Claire Boucher, better known by her stage name Grimes, is a
 meta_Keywords: Claire Elise Boucher Net Worth
 url: claire-elise-boucher-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
-date: 2022-07-14T09:27:11.383Z
-updateDate: 2022-07-14T09:27:10.700Z
+date: 2022-07-14T14:20:43.158Z
+updateDate: 2022-07-14T14:20:42.466Z
+featured_Image: /uploads/claire-elise-boucher-net-worth-bio-and-details.webp
 categories:
   - Actors
 faqs:
@@ -113,6 +114,8 @@ She earned $1.5 million from her album Visions (2012) and $4 million from her al
 ## **Claire Elise Boucher Height:**
 
 She is 5 feet 3 inches (1.60 m) tall.
+
+![Claire Elise Boucher Net Worth And Biography](/uploads/claire-elise-boucher-net-worth.webp)
 
 ## **Is Claire Elise Boucher Single?** 
 

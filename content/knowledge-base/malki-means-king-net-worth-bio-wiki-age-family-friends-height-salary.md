@@ -30,7 +30,7 @@ faqs:
           <strong>Net Worth</strong>
         </td>
         <td>
-          <strong>$5 million</strong>
+          <strong>$1 million</strong>
         </td>
       </tr>
       <tr>

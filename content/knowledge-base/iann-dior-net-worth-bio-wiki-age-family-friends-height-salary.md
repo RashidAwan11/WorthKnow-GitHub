@@ -11,7 +11,7 @@ meta_Keywords: Iann Dior Net Worth
 url: iann-dior-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-21T07:08:37.609Z
-updateDate: 2022-03-21T07:23:17.140Z
+updateDate: 2022-07-15T05:35:00.325Z
 featured_Image: /uploads/iann-dior-net-worth-bio-and-details.webp
 categories:
   - Rapper
@@ -76,6 +76,8 @@ Iann Dior was born March 25, 1999 and he is 22 years old.
 
 Iann Dior was born on March 25, 1999, in the Arecibo area of ​​Puerto Rico to Tommy and Anabelle Iann and later moved to Corpus Christi, Texas at the age of five. He graduated from high school in May 2017. As he grew up, Iann became very interested in rap, and with his mother, some Spanish music, including Marc Anthony. He remembers how his father listened to Jay-Z and introduced him to rock bands like The Fray.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/selena-quintanilla-family-net-worth-bio-age-family-height-house-home-address-phone-number-email/" target="_blank" rel="noopener">Selena Quintanilla</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/o-9Y9IJrpb8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Iann Dior Education:**
@@ -102,6 +104,8 @@ Iann Dior earns approximately $45000 per month.
 
 Iann is 5 feet 10 inches(1.7 m) and weighs 154 Lbs(70 kg).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/bankroll-freddie-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Bankroll Freddie</a>**
+
 ![Iann Dior Net Worth And Biography](/uploads/iann-dior-net-worth-.webp)
 
 ## **Is Iann Dior Relationship Status Single/Married?**
@@ -123,3 +127,5 @@ In the year 2019, Dior’s song, “Gone Girl” served as the lead single for h
 * Iann Dior was born in Arecibo, Puerto Rico.
 * Dior has 1.5 million followers on Instagram.
 * He also has more than 900k subscribers on his YouTube channel.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

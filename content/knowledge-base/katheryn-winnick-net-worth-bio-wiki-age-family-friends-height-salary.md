@@ -12,7 +12,7 @@ meta_Keywords: Katheryn Winnick Net Worth
 url: katheryn-winnick-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-05-17T11:28:31.063Z
-updateDate: 2022-05-17T11:28:30.578Z
+updateDate: 2022-07-15T05:39:14.730Z
 featured_Image: /uploads/katheryn-winnick-net-worth-bio-and-details.webp
 categories:
   - Actors
@@ -82,6 +82,8 @@ Katheryn Winnick was born in Etobicoke, Ontario, Canada. Her father, Roman Winni
 
 She did most of her growing up in Toronto and began studying karate at the age of seven. Winnick later earned her black belt in karate and also holds a second-degree black belt in taekwondo.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/bob-chapek-net-worth-bio-age-family-friends-height-salary/" target="_blank" rel="noopener">Bob Chapek</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/6clajJmjjPE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Katheryn Winnick Education:**
@@ -105,6 +107,8 @@ Her salary is not public but it is estimated to be around $100k per episode.
 ## **Katheryn Winnick Height:**
 
 Katheryn Winnick is 5 feet 6 inches tall (1.68 m).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/matt-ox-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Matt Ox</a>**
 
 ![Katheryn Winnick Net Worth Biography](/uploads/katheryn-winnick-net-worth-.webp)
 
@@ -131,3 +135,5 @@ Winnick has been nominated for several awards throughout her career including th
 * She began studying karate at the age of seven.
 * Winnick later earned her black belt in karate and also holds a second-degree black belt in taekwondo.
 * Katheryn Winnick went to William Lyon Mackenzie Collegiate Institute and then later studied earth sciences at York University.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

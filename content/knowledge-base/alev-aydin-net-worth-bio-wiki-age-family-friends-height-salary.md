@@ -81,6 +81,8 @@ Alev Aydin was born on March 17, 1983, and he is currently 37 years old.
 
 Alev Aydin was born in Turkey but he moved to the United States when he was 12 years old. He grew up in Los Angeles, California and he currently resides there with his wife and daughter.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/amanda-gorman-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Amanda Gorman</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/WtYZb4tX_D4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Alev Aydin Education:**
@@ -102,6 +104,8 @@ Alev Aydin’s salary is not publicly known but it is estimated that he earns ar
 ## **Alev Aydin Height:**
 
 Alev Aydin is approximately 6 feet tall and his weight is also not publicly known.
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/erica-dixon-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Erica Dixon</a>**
 
 ![Alev Aydin Net Worth Biography](/uploads/alev-aydin-net-worth-.webp)
 
@@ -126,3 +130,5 @@ Alev Aydin has won several awards for his work including the Hollywood Music in 
 * Alev Aydin is represented by United Talent Agency.
 * Alev Aydin has also written a book called “Hollywood is a Turkish Dumpster”.
 * Alev Aydin is a screenwriter who became the most searched name ever after Halsey announced she was pregnant with their first child earlier this year.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

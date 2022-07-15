@@ -11,7 +11,7 @@ meta_Keywords: Shannon Tweed Simmons Net Worth
 url: shannon-tweed-simmons-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-24T05:59:57.825Z
-updateDate: 2022-03-24T09:34:52.003Z
+updateDate: 2022-07-15T05:57:41.211Z
 featured_Image: /uploads/shannon-tweed-simmons-net-worth-bio-and-details.webp
 categories:
   - Model
@@ -76,6 +76,8 @@ Shannon was born March 10, 1957 and she is 65 years old.
 
 Tweed was born in Whitbourne, Newfoundland. She is the daughter of Donald Keith Tweed, a mink farmer, and Louise (Wall) Tweed. She grew up on a mink farm in Whitbourne. She is one of seven children and has three sisters, including actress Tracy Tweed. After Donald Tweed fainted after a car crash, Louise Tweed moved her children to her mother's home in Saskatoon, Saskatchewan. Louise Tweed studied nursing while the family survived. Shannon Tweed entered the beauty pageant following a 20-year-old breast enhancement surgery. 
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/katy-hearn-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Katy Hearn</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/LKLZNvJdGd4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Shannon Tweed Education:**
@@ -104,6 +106,8 @@ Shannon earns approximately $300,000 per month.
 
 Shannon is 5 feet 8 inches(1.78 m) and weighs 154 Lbs(70 kg).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/shannon-abloh-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Shannon Abloh</a>**
+
 ![Shannon Tweed Simmons Net Worth And Biography](/uploads/shannon-tweed-simmons-net-worth.webp)
 
 ## **Is Shannon Tweed Relationship Status Single/Married?**
@@ -130,3 +134,5 @@ Yes, Shannon is married.
 * Was the 1982 Playboy Playmate of the Year.
 * Published an autobiography, Kiss and Tell, in 2006.
 * Created a video game, Attack of the Groupies, based on her experiences dealing with Gene Simmons' fans.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

@@ -10,7 +10,7 @@ meta_Keywords: Trevor Wallace Net Worth
 url: trevor-wallace-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-21T16:56:37.297Z
-updateDate: 2022-03-22T09:01:07.732Z
+updateDate: 2022-07-15T05:42:48.970Z
 featured_Image: /uploads/trevor-wallace-net-worth-bio-and-details.webp
 categories:
   - YouTuber
@@ -75,6 +75,8 @@ Trevo Wallace was born December 30, 1992 and he is 29 years old.
 
 Wallace was born in Naperville, Illinois but grew up in Camarillo, California. He graduated from San Jose State University. During his time at San Jose State University, he was a member of the Delta Upsilon fraternity.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/ayo-and-teo-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Ayo And Teo</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/3P9fkBDeDeM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Trevor Wallace Education:**
@@ -101,6 +103,8 @@ Trevor earns approximately $27000 per month.
 
 Trevor is 5 feet 9 inches(1.75 m) and weighs 174 Lbs(79 kg).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/keyon-harrold-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Keyon Harrold</a>**
+
 ![Trevor Wallace Net Worth And Biography](/uploads/trevor-wallace-net-worth-.webp)
 
 ## **Is Trevor Wallace Relationship Status Single/Married?**
@@ -115,3 +119,5 @@ Trevor is not married.
 ## **Trevor Wallace Achievements:**
 
 Wallace is a regular on the YouTube channel All Def Digital and has been featured on Buzzfeed, Unilad, Funny or Die, Super Deluxe, Fusion TV, Worldstar Hip Hop & MTV2.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

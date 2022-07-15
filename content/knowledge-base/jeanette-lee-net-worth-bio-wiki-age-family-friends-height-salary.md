@@ -10,7 +10,7 @@ meta_Keywords: Jeanette Lee Net Worth
 url: jeanette-lee-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-26T09:24:57.877Z
-updateDate: 2022-03-30T07:26:48.324Z
+updateDate: 2022-07-15T14:17:36.494Z
 featured_Image: /uploads/jeanette-lee-net-worth-bio-and-details.webp
 categories:
   - Sports
@@ -75,6 +75,8 @@ Jeanette was born on July 9, 1971 in Brooklyn, New York and she is 50  years ol
 
 Jeanette was raised in Brooklyn, NY. At the age of thirteen, Jeanette was diagnosed with scoliosis, a disorder in which there is a curve, often S-shaped or C-shaped, of the spine or backbone. To alleviate the progression of the debilitating condition, Jeanette underwent scoliosis surgery.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/daniel-gibson-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Daniel Gibson</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/6YbCSvVvzOk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## Jeanette Lee Professional Career:
@@ -105,6 +107,8 @@ Jeanette earns approximately $300,000 per month.
 
 Jeanette is 5 feet 6 inches(168 m) and weighs 128 Lbs(58 kg).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/jay-mcgraw-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Jay Mcgraw</a>**
+
 ![Jeanette Lee Net Worth And Biography](/uploads/jeanette-lee-net-worth.webp)
 
 ## **Is Jeanette Lee Relationship Status Single/Married?**
@@ -134,3 +138,5 @@ Yes, Jeanette is married.
 ## **Jeanette Lee Facts:**
 
 Jeanette Lee, also famous as The Black Widow, is a top-ranked pool player of the 1990s. Known to be a fierce player and a source of inspiration for many female pool players, Jeanette is loved by many in the world.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

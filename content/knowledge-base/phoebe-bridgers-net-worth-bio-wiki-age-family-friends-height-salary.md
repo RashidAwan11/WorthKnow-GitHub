@@ -12,7 +12,7 @@ meta_Keywords: Phoebe Bridgers Net Worth
 url: phoebe-bridgers-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-05-31T06:07:48.113Z
-updateDate: 2022-05-31T06:07:47.448Z
+updateDate: 2022-07-15T04:49:57.790Z
 featured_Image: /uploads/phoebe-bridgers-net-worth-bio-and-details.webp
 categories:
   - Writer
@@ -80,6 +80,8 @@ Phoebe Bridgers was born on August 17, 1994, and she is 27 years old.
 
 Phoebe Bridgers was born in Los Angeles, California, and grew up in a musical family. Her mother was a singer-songwriter, and her father was a film composer. Bridgers began playing guitar and writing songs at the age of 11. She attended Highland Park High School, where she played in various bands.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/money-man-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Money Man</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/lKh6R3UcJO8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Phoebe Bridgers Education:**
@@ -103,6 +105,8 @@ Phoebe Bridgers' salary is $300,000.
 ## **Phoebe Bridgers Height:**
 
 Phoebe Bridgers is 5 feet 5 inches tall and weighs 121 pounds. 
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/lil-wyte-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Lil Wyte</a>**
 
 ![Phoebe Bridgers Net Worth Biography](/uploads/phoebe-bridgers-net-worth.webp)
 
@@ -132,3 +136,5 @@ Phoebe Bridgers is in a relationship with actor Jack Kilmer. The couple has been
 * Bridgers' favorite album is Pink Floyd's The Wall. 
 * In 2018, Bridgers was nominated for an Emmy Award for her work on the television series Better Things. 
 * Bridgers has been a vegetarian since she was 12 years old.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

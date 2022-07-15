@@ -12,7 +12,7 @@ meta_Keywords: Faze Swagg Net Worth
 url: faze-swagg-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-06-01T09:11:21.251Z
-updateDate: 2022-06-01T09:11:20.272Z
+updateDate: 2022-07-15T04:33:53.907Z
 featured_Image: /uploads/faze-swagg-net-worth-bio-and-details.webp
 categories:
   - YouTuber

@@ -11,7 +11,7 @@ meta_Keywords: Reggie Hayes Net Worth
 url: reggie-hayes-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-05-27T11:40:01.293Z
-updateDate: 2022-05-27T11:40:00.778Z
+updateDate: 2022-07-15T05:34:57.288Z
 featured_Image: /uploads/reggie-hayes-net-worth-bio-and-details.webp
 categories:
   - Actors
@@ -78,6 +78,8 @@ Reggie Hayes was born July 15, 1969, and he is 52 years old
 
 Reggie Hayes was born in Chicago, Illinois. He grew up on the city's South Side and graduated from high school in 1987. After graduation, he attended Northern Illinois University, where he studied communications. He later transferred to Columbia College in Chicago, where he earned a bachelor's degree in fine arts.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/ben-wallace-net-worth-bio-age-family-friends-height-salary/" target="_blank" rel="noopener">Ben Wallace</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/OoqRmUQqYzc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Reggie Hayes Education:**
@@ -102,6 +104,8 @@ Reggie Hayes earns an annual salary of $800 thousand.
 
 Reggie Hayes is 6 feet tall and weighs approximately 160 pounds.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/mia-sara-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Mia Sara</a>**
+
 ![Reggie Hayes Net Worth Biography](/uploads/reggie-hayes-net-worth-.webp)
 
 ## **Is Reggie Hayes Relationship Status Single/Married?**
@@ -122,3 +126,5 @@ In 2001, Reggie Hayes won an NAACP Image Award for his role in the film "Girlfri
 * Reggie Hayes is an avid Chicago Bulls fan.
 * Reggie Hayes is a supporter of the Obama Foundation.
 * Reggie Hayes was once homeless and lived in a van for two years.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

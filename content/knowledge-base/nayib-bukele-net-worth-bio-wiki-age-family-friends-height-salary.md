@@ -11,7 +11,7 @@ meta_Keywords: Nayib Bukele Net Worth
 url: nayib-bukele-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-31T10:55:28.786Z
-updateDate: 2022-03-31T10:55:30.009Z
+updateDate: 2022-07-15T14:38:51.251Z
 featured_Image: /uploads/nayib-bukele-net-worth-bio-and-details.webp
 categories:
   - Businessperson
@@ -78,6 +78,8 @@ He is the son of Olga Ortez de Bukele and Armando Bukele Kattán. According to T
 
 Bukele studied law at Central American University but later completed his studies and founded his first company at the age of 18. According to a 2017 article in the digital newspaper El Faro, Watch is the owner of Yamaha Motors El Salvador, a company that sells and distributes Yamaha products in El Salvador. He was also the Director and President of OBERMET, S.A. DE C.V.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/cary-elwes-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Cary Elwes</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/btSziCOYFwM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Nayib Bukele Education:**
@@ -99,6 +101,8 @@ Nayib earns approximately $250,000 per month.
 ## **Nayib Bukele Height:**
 
 Nayib is 5 feet 8 inches(1.76 m) and weighs 154 Lbs(70 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/chris-norton-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Chris Norton</a>**
 
 ![Nayib Bukele Net Worth And Biography](/uploads/nayib-bukele-net-worth.png)
 
@@ -130,3 +134,5 @@ Yes, Nayib Bukele is married.
 * Nayib Armando Bukele Ortez is a Salvadoran politician and businessman.
 * He is the 43rd president of El Salvador since 1 June 2019 after winning the 2019 election.
 * Bukele was previously elected mayor of Nuevo Cuscatlán on 11 March 2012.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

@@ -12,7 +12,7 @@ meta_Keywords: Tyler Lepley Net Worth
 url: tyler-lepley-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-05-16T08:11:27.160Z
-updateDate: 2022-05-16T08:11:25.919Z
+updateDate: 2022-07-15T10:08:50.126Z
 featured_Image: /uploads/tyler-lepley-net-worth-bio-and-details.webp
 categories:
   - Actors
@@ -80,6 +80,8 @@ Lepley was born on March 24, 1987, and he is 35 years old.
 
 Lepley was born and raised in Pittsburgh, Pennsylvania. He is the son of an African American father and a Caucasian mother. Lepley's father died when he was just eleven years old from complications of diabetes. After his father's death, Lepley and his two sisters were raised by their mother.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/sheck-wes-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Sheck Wes</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/IPO0WGLndpo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Tyler Lepley Education:**
@@ -103,6 +105,8 @@ Lepley's salary for his work on The Haves and the Have Nots is $50,000 per episo
 ## **Tyler Lepley Height:**
 
 Lepley is 6 feet tall and weighs approximately 160 pounds.
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/keri-hilson-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Keri Hilson</a>**
 
 ![Tyler Lepley Net Worth And Biography ](/uploads/tyler-lepley-net-worth-.webp)
 
@@ -129,3 +133,5 @@ In 2019, Lepley was awarded the Rising Star Award by the African American Film C
 * Lepley has been in a long-term relationship with his girlfriend, Emily Goss, since 2015.
 * Lepley is a fan of the Pittsburgh Steelers and the Pittsburgh Penguins.
 * Lepley's net worth is estimated to be $3 million.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

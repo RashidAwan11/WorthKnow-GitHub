@@ -12,7 +12,7 @@ meta_Keywords: Rick Shiels Net Worth
 url: rick-shiels-net-worth-bio-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-04-04T11:56:17.725Z
-updateDate: 2022-04-04T11:56:17.243Z
+updateDate: 2022-07-15T14:57:57.362Z
 featured_Image: /uploads/rick-shiels-net-worth-bio-and-details.webp
 categories:
   - YouTuber
@@ -77,6 +77,8 @@ Rick Shiels was born 3 July 1986 and he is 35 years old.
 
 Shiels was born in Bolton, England. He started playing golf at Hart Common Golf Club in Westhoughton at the age of 11. He earned a diploma in golf studies at Myerscough College. After playing golf for 10 years, he began working at Mere Golf and Country Club in Cheshire, England after completing his PGA training and becoming a qualified pro.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/nathalie-kelley-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Nathalie Kelley</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/TGoMvrCwIwI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Rick Shiels Education:**
@@ -98,6 +100,8 @@ Rick Shield earns approximately $26000 per month.
 ## **Rick Shiels Height:**
 
 Rick Shiels is 6 feet(1.3 m) and weighs 165 Lbs(75 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/arcangel-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Arcangel</a>**
 
 ![Rick Shiels Net Worth And Biography](/uploads/rick-shiels-net-worth-.webp)
 
@@ -125,3 +129,5 @@ Slowly, he began gaining traction, and in June 2020, he became the first golf bl
 
 * In June 2019, his channel became the biggest golf channel on YouTube after surpassing 561,500 subscribers. 
 * As of January, 2022, he now has over 2 million subscribers.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

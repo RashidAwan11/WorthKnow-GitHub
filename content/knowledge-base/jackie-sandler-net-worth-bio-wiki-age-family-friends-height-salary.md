@@ -12,7 +12,7 @@ meta_Keywords: Jackie Sandler Net Worth
 url: jackie-sandler-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-05-29T18:48:56.315Z
-updateDate: 2022-05-29T18:48:55.710Z
+updateDate: 2022-07-15T05:07:44.951Z
 featured_Image: /uploads/jackie-sandler-net-worth-bio-and-details.webp
 categories:
   - Actors
@@ -79,6 +79,8 @@ Jackie Sandler was born on September 24, 1974 and she is 47 years old.
 
 Sandler was born in New York City, to Judith (née Levine), a nursery school teacher, and Stanley Sandler, an electrical engineer. She has two brothers, Scott and Todd. Her family is Jewish. She grew up in Manchester, New Hampshire after moving there at the age of six. Sandler attended Hebrew school and had a Bat Mitzvah.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/jem-wolfie-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Jem Wolfie</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/ef_qX3Geezc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Jackie Sandler Education:**
@@ -105,6 +107,8 @@ Information about Jackie Sandler's salary is not available at this time.
 
 Jackie Sandler is 5 feet 5 inches tall and weighs approximately 121 pounds.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/alisha-marie-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Alisha Marie</a>**
+
 ![Jackie Sandler Net Worth Biography](/uploads/jackie-sandler-net-worth-.webp)
 
 ## **Is Jackie Sandler Relationship Status Single/Married?**
@@ -125,3 +129,5 @@ Sandler has been nominated for several awards throughout her career, including a
 * Jackie Sandler's height is 5 feet 5 inches tall.
 * Jackie Sandler has a net worth of $16 million.
 * Jackie Sandler is married to fellow actor and comedian Adam Sandler. The couple has two daughters, Sadie Madison Sandler and Sunny Madeline Sandler.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

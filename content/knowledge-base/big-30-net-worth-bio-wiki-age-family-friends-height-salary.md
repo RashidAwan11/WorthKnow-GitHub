@@ -10,7 +10,7 @@ meta_Keywords: Big 30 Net Worth
 url: big-30-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-31T10:35:58.003Z
-updateDate: 2022-03-31T10:35:59.119Z
+updateDate: 2022-07-15T14:38:01.923Z
 featured_Image: /uploads/big-30-net-worth-and-details.webp
 categories:
   - Rapper
@@ -75,6 +75,8 @@ Big 30 was born December 28, 1999 and he is 22 years old.
 
 Big 30 was born in Memphis, Tennessee, United States. He has not shared more information regarding his early life, parents, and academic detail. Big 30 has been impressing the music lover with his mesmerising songs these days. So, it is assumed that he must have an interest in music from an early age.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/karan-brar-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Karan Brar</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/q_S-96-pLxU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Big 30 Education:**
@@ -92,6 +94,8 @@ Big 30 earns approximately $27000 per month.
 ## **Big 30 Height:**
 
 Big 30 is 5 feet 7 inches(170 cm) and weighs 165 Lbs(75 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/sykkuno-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Sykkuno</a>**
 
 ![Big 30 Net Worth And Biography](/uploads/big-30-net-worth.webp)
 
@@ -119,3 +123,5 @@ Big 30 is famous but has not achieved any announcement or award yet.
 * The musician also has a Twitter account but the account does not have a huge number of followers like on his Instagram.
 * He has a feud with another rapper Gucci Mane after he posted a picture of them together. Mane called him up and told him to stop posting pictures of him on Big 30’s social media.
 * The Memphis based rapper is signed to Bread Gang label.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

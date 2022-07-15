@@ -12,7 +12,7 @@ meta_Keywords: Dule Hill Net Worth
 url: dule-hill-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-05-30T06:00:17.475Z
-updateDate: 2022-05-30T06:00:16.825Z
+updateDate: 2022-07-15T04:59:54.775Z
 featured_Image: /uploads/dule-hill-net-worth-bio-and-details.webp
 categories:
   - Actors
@@ -81,6 +81,8 @@ Hill was born on May 3, 1975, and he is 47 years old.
 
 Dule Hill was born on May 3, 1975, in Orange, New Jersey to parents Cassandra and Aaron. His mother worked as a schoolteacher and his father worked as a banker. He has two brothers, Aaron and Gregory.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/matthew-lillard-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Matthew Lillard</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/AJecqHK-lsg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Dule Hill Education:**
@@ -113,6 +115,8 @@ Dule Hill made $50,000 per episode of The West Wing. He also made $30,000 per ep
 
 He is 6 feet tall and weighs 185 pounds.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/bia-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Bia</a>**
+
 ![Dule Hill Net Worth Biography](/uploads/dule-hill-net-worth.webp)
 
 ## **Is Dule Hill Relationship Status Single/Married?**
@@ -138,3 +142,5 @@ In addition to his work in front of the camera, Dule Hill has also been recogniz
 * He is a member of the fraternity Phi Beta Sigma.
 * He is a vegetarian.
 * His favorite episode of The West Wing is "In Excelsis Deo."
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

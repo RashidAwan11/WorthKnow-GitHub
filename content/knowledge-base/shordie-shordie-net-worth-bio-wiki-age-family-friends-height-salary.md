@@ -13,7 +13,7 @@ meta_Keywords: Shordie Shordie Net Worth
 url: shordie-shordie-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-04-09T10:39:32.882Z
-updateDate: 2022-04-09T10:39:34.288Z
+updateDate: 2022-07-15T14:35:08.897Z
 featured_Image: /uploads/shordie-shordie-net-worth-bio-and-details.webp
 categories:
   - Rapper
@@ -78,6 +78,8 @@ RaQuan Hudson was born on August 6, 1996, in Baltimore, Maryland, the U.S. 
 
 The rapper admitted that he grew up listening to great artists like Lil Wayne, Rich Homie Quan, Eminem and Nas who took him as his influence and helped him develop his rap skills.There is no background information available of Shordie Shordie.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/anthony-ramos-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Anthony Ramos</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/YaZByNGGfko" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Shordie Shordie Education:**
@@ -99,6 +101,8 @@ Shordie Shordie earns approximately $50,000 plus per month.
 ## **Shordie Shordie Height:**
 
 Shordie Shordie is 5 feet 10 inches(178 cm) and weighs 150 Lbs(68 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/andy-samberg-net-worth-bio-age-family-friends-height-salary/" target="_blank" rel="noopener">Andy Samberg</a>**
 
 ![Shordie Shordie Net Worth And Biography](/uploads/shordie-shordie-net-worth.webp)
 
@@ -122,3 +126,5 @@ Shordie Shordie has not won any award yet.
 * He is often spotted in the group. 
 * He interviewed various popular magazines like Genius and XXLmag to reveal his ideas and next videos.
 * Shordie Shordie biography is not available on wikipedia.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

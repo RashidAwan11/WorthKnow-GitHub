@@ -12,7 +12,7 @@ meta_Keywords: Tom Joyner Net Worth
 url: tom-joyner-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-05-29T19:00:14.582Z
-updateDate: 2022-05-29T19:00:13.161Z
+updateDate: 2022-07-15T05:05:13.987Z
 featured_Image: /uploads/tom-joyner-net-worth-bio-and-details.webp
 categories:
   - TV
@@ -79,6 +79,8 @@ Tom was born on November 23, 1949, and he is 72 years old.
 
 Tom was born in Tuskegee, Alabama, and he is the son of Frances Joyner and Horace Calvin Joyner Sr. When he was a young child his family moved to Chicago. Tom attended high school at Brother Rice Catholic High School and then went on to attend Tuskegee University where he graduated with a degree in sociology in 1974.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/letitia-wright-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Letitia Wright</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/wqy8hba9yvE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Tom Joyner Education:**
@@ -102,6 +104,8 @@ Tom Joyner's salary is estimated to be $8 million per year.
 ## **Tom Joyner Height:**
 
 Tom Joyner is 6 feet tall and weighs 210 pounds.
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/jacquees-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Jacquees</a>**
 
 ![Tom Joyner Net Worth Biography](/uploads/tom-joyner-net-worth-.webp)
 
@@ -127,3 +131,5 @@ For his work with the Tom Joyner Foundation, he has received the NAACP President
 * He has been given the nickname "The Fly Jock" because he often commuted between his radio gigs in Dallas and Chicago.
 * Joyner is the host of the annual Tom Joyner Family Reunion, a week-long event that features musical performances, comedy shows, and seminars.
 * He has three children: Thomas Jr., Oscar, and Olivia.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

@@ -14,7 +14,7 @@ meta_Keywords: Rush Limbaugh Net Worth
 url: rush-limbaugh-family-net-worth-bio-age-family-height-house-home-address-phone-number-email
 author: Nicholas Samantha
 date: 2022-04-15T09:30:33.119Z
-updateDate: 2022-04-15T09:30:32.042Z
+updateDate: 2022-07-15T13:48:53.200Z
 featured_Image: /uploads/rush-limbaugh-net-worth-bio-and-details.webp
 categories:
   - TV
@@ -141,6 +141,8 @@ Limbaugh was raised in a household with his half-sister, Dawn. Limbaugh's mother
 
 Limbaugh's father wanted him to become a lawyer like him, but Limbaugh instead became interested in radio while working as a disc jockey at KGMO-AM in Cape Girardeau during his teenage years.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/bre-z-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Bre Z</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/ELd7forYPJ4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Rush Limbaugh Education:**
@@ -167,6 +169,8 @@ Limbaugh's salary is $7 million per month.
 
 Limbaugh is 6 feet 0 inches (1.83 m) tall and weighs 225 pounds (102 kg).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/todd-bridges-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Todd Bridges</a>**
+
 ## **Is Rush Limbaugh Relationship Status Single/Married?**
 
 Limbaugh was married to Roxy Maxine McNeely from 1977 to 1980. He married Michelle Sixta in 1983, and the couple divorced in 1990. Limbaugh married Marta Fitzgerald in 1994, and the couple divorced in 2004. Limbaugh has no children.
@@ -191,3 +195,5 @@ Limbaugh has won numerous awards, including the Marconi Radio Award for Outstand
 * Limbaugh was raised in a household with his half-sister, Dawn. 
 * Limbaugh's mother died of cancer when he was 16.
 * Limbaugh attended Cape Girardeau Public School District schools, where he failed both the sixth and eighth grades.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

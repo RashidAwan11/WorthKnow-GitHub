@@ -12,7 +12,7 @@ meta_Keywords: Paul Rodriguez Net Worth
 url: paul-rodriguez-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-05-30T05:10:24.301Z
-updateDate: 2022-05-30T05:10:25.390Z
+updateDate: 2022-07-15T05:00:58.784Z
 featured_Image: /uploads/paul-rodriguez-net-worth-bio-and-details.webp
 categories:
   - Actors
@@ -81,6 +81,8 @@ In his teens, P-Rod began to get into trouble with the law and was even sent to 
 
 P-Rod has appeared in numerous films and TV shows, including the HBO series "Eastbound & Down" and the films "The X-Games 3D: The Movie" and "Street Dreams". He has also released several rap albums, including "El Matador" and "The P Rodriguez Album".
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/ted-sarandos-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Ted Sarandos</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/PwGXZtc_A_4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Paul Rodriguez Education:**
@@ -102,6 +104,8 @@ P-Rod's salary is estimated to be $1 million per year.
 ## **Paul Rodriguez Height:**
 
 P-Rod is 5 feet 7 inches tall and weighs approximately 160 pounds.
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/lakeith-stanfield-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Lakeith Stanfield</a>**
 
 ![Paul Rodriguez Net Worth Biography](/uploads/paul-rodriguez-net-worth.webp)
 
@@ -126,3 +130,5 @@ P-Rod is also a successful entrepreneur, owning his own skateboard company, Prim
 * P-Rod's mother died of cancer when he was just 13 years old.
 * P-Rod has two brothers, Gabriel and Daniel, and two sisters, Elizabeth and Vanessa.
 * P-Rod is a Christian.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

@@ -12,7 +12,7 @@ meta_Keywords: Rudy Ruettiger Net Worth
 url: rudy-ruettiger-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-05-17T11:25:55.273Z
-updateDate: 2022-05-17T11:25:54.488Z
+updateDate: 2022-07-15T05:44:34.434Z
 featured_Image: /uploads/rudy-ruettiger-net-worth-bio-and-details.webp
 categories:
   - Motivational Speaker
@@ -82,6 +82,8 @@ Rudy Ruettiger was born on August 23, 1948, in Joliet, Illinois, the third child
 
 Rudy was diagnosed with dyslexia in the second grade. He struggled academically throughout his school years, but he was determined to play football for Notre Dame, one of the country's most prestigious colleges.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/alpo-martinez-net-worth-bio-age-family-friends-height-salary/" target="_blank" rel="noopener">Alpo Martinez</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/OfOcC5k3AJ4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Rudy Ruettiger Education:**
@@ -103,6 +105,8 @@ Rudy Ruettiger's salary is unknown, but he is thought to earn a significant amou
 ## **Rudy Ruettiger Height:**
 
 Rudy Ruettiger is 5'6" tall and weighs 165 pounds.
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/trevor-moore-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Trevor Moore</a>**
 
 ![Rudy Ruettiger Net Worth Biography](/uploads/rudy-ruettiger-net-worth.webp)
 
@@ -132,3 +136,5 @@ Rudy Ruettiger is married to his wife, Cheryl. The couple has three children tog
 * Rudy Ruettiger was born on August 23, 1948, in Joliet, Illinois.
 * Rudy Ruettiger is of Austro-Hungarian and Irish descent.
 * Rudy Ruettiger was diagnosed with dyslexia in the second grade.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

@@ -13,7 +13,7 @@ meta_Keywords: Rae Dunn Net Worth
 url: rae-dunn-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-05-17T07:48:24.136Z
-updateDate: 2022-05-17T07:48:25.732Z
+updateDate: 2022-07-15T05:59:46.547Z
 featured_Image: /uploads/rae-dunn-net-worth-bio-and-details.webp
 categories:
   - Artist
@@ -80,6 +80,8 @@ Rae Dunn was born on February 12, 1967. She is currently 50 years old.
 
 Rae Dunn is originally from Ohio but moved to California to pursue her career as an artist. She has always had a passion for design and creativity and started out in the field of graphic design before branching out into more artistic pursuits. Despite being incredibly successful with her business, Rae continues to stay humble and grounded, focusing on creating beautiful and well-designed products that bring joy to people’s lives. 
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/loni-love-net-worth-bio-age-family-friends-height-salary/" target="_blank" rel="noopener">Loni Love</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/1eGCw9fvJz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Rae Dunn Education:**
@@ -103,6 +105,8 @@ Rae Dunn earns approximately $70k per month.
 ## **Rae Dunn Height:**
 
 Rae Dunn is 5 feet 6 inches tall and weighs around 154 pounds.
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/kathryn-hahn-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Kathryn Hahn</a>**
 
 ![Rae Dunn Net Worth Biography](/uploads/rae-dunn-net-worth-bio-.webp)
 
@@ -132,3 +136,5 @@ Overall, Rae Dunn is an incredibly talented and successful artist who continues 
 * After graduating from college, Rae worked as a graphic designer for several years, creating logos and branding materials for various companies.
 * In 2008, she launched her own home décor and kitchenware brand called Rae Dunn Artisanal.
 * Rae has won numerous awards for her work, including the prestigious American Graphic Design Award in 2015. She has also been featured in several prominent publications, including Forbes and Harper’s Bazaar.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

@@ -14,7 +14,7 @@ meta_Keywords: Steve Harvey Net Worth
 url: steve-harvey-family-net-worth-bio-age-family-height-house-home-address-phone-number-email
 author: Nicholas Samantha
 date: 2022-04-14T11:11:27.280Z
-updateDate: 2022-04-14T11:11:26.780Z
+updateDate: 2022-07-15T13:55:15.119Z
 featured_Image: /uploads/steve-harvey-net-worth-bio-and-details-.webp
 categories:
   - Actors
@@ -127,6 +127,8 @@ Steve Harvey is a native of Chicago, Illinois, USA. He is the son of a school te
 
 Steve Harvey graduated from the University of Southern California with a bachelor's degree in Communications. After graduating from the University of Southern California, he worked at NBC as an announcer. He also did commercials and radio shows. Steve Harvey has hosted several television shows. He has also written and produced many television shows.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/kendall-rae-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Kendall Rae</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/A_0yoa_Cqrs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Steve Harvey Education:**
@@ -149,6 +151,8 @@ Steve earns approximately $100,000 plus per year.
 
 Steve is 6 feet 1 inches(182 cm) and weighs 231 Lbs 105 kg.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/hazel-e-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Hazel E</a>**
+
 ## **Is Steve Harvey's Relationship Status Single/Married?**
 
 Yes, Steve is married.
@@ -169,3 +173,5 @@ Yes, Steve is married.
 * Steve was once homeless.
 * Steve almost missed his breakthrough because he was broke.
 * Steve's first sitcom was a Top 20 hit that was canceled.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

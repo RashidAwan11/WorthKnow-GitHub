@@ -11,7 +11,7 @@ meta_Keywords: Jeremy Wade Net Worth
 url: jeremy-wade-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-26T09:08:41.022Z
-updateDate: 2022-03-26T09:24:35.537Z
+updateDate: 2022-07-15T14:16:36.628Z
 featured_Image: /uploads/jeremy-wade-net-worth-bio-and-detail.webp
 categories:
   - Author
@@ -78,6 +78,8 @@ Jeremy was born in Ipswich and grew up in Nayland, where his father was a vicar.
 
 On various occasions during his travels abroad, Wade contracted malaria, was threatened with a gun, and survived a plane crash. He is fluent in Portuguese, learned the basics of his Brazilian fishing career, and speaks French and Spanish.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/swagboyq-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Swagboyq</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/linJ5tdDs6g" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Jeremy Wade Education:**
@@ -102,6 +104,8 @@ Jeremy earns approximately $32000 per month.
 
 Jeremy is 6 feet tall(1.83 m) and weighs 163 Lbs(74 kg).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/smokepurpp-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Smokepurpp</a>**
+
 ![Jeremy Wade Net Worth And Details](/uploads/jeremy-wade-net-worth.webp)
 
 ## **Is Jeremy Wade Relationship Status Single/Married?**
@@ -123,3 +127,5 @@ Jerry Wade is never married.
 ## **Jeremy Wade Facts:**
 
 Jeremy Wade has spent nearly 40 years travelling to the world's remoter rivers. Since first setting out in 1982 (on an Ariana Afghan DC-10 bound for India) he has been arrested for spying in southeast Asia, caught cerebral malaria in the Congo, and survived a plane crash in the Amazon.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

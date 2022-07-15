@@ -12,7 +12,7 @@ meta_Keywords: Natalie Desselle Net Worth
 url: natalie-desselle-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-04-18T07:53:37.259Z
-updateDate: 2022-04-18T07:53:38.497Z
+updateDate: 2022-07-15T10:41:57.514Z
 featured_Image: /uploads/natalie-desselle-net-worth-bio-and-details.webp
 categories:
   - Actors
@@ -79,6 +79,8 @@ Natalie was born July 12, 1967 and she was 53 years old.
 
 Natalie was married to Leonard Roberts from 2002 until his death in 2016. They have two children together, a son and daughter. In 2019, Desselle revealed that she had been diagnosed with colon cancer. 
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/tori-kelly-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Tori Kelly</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/0CxSgxE46PA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Natalie Desselle Education:**
@@ -115,7 +117,9 @@ Natalie home in Los Angeles.
 
 ## **Natalie Desselle Height:**
 
-Natalie Desselle Weight and weighs around 55 kg. 
+Natalie Desselle Weight and weighs around 55 kg.
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/duke-dennis-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Duke Dennis</a>**
 
 ## **Is Natalie Desselle Relationship Status Single/Married?**
 
@@ -140,3 +144,5 @@ Natalie was diagnosed with colon cancer in 2019. 
 Natalie is a two-time NAACP Image Award winner. 
 
 Natalie graduated from Dickinson College in 1990.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

@@ -13,7 +13,7 @@ meta_Keywords: Angela Aguilar Net Worth
 url: angela-aguilar-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-04-04T05:57:50.801Z
-updateDate: 2022-04-04T05:57:52.961Z
+updateDate: 2022-07-15T14:53:00.839Z
 featured_Image: /uploads/angela-aguilar-net-worth-bio-and-details.webp
 categories:
   - Singer
@@ -78,6 +78,8 @@ Angela was born October 8, 2003 and she is 18 years old.
 
 Angela is named after her ancestor Mngela Marquez Barraza Valle, her paternal grandmother. Aguilar has dual citizenship with Mexico and the United States. Aguilar was born into a musical family, known as "La Dinastía Aguilar" (Aguilar Empire). Aguilar's father is Mexican singer Pepe Aguilar, and her grandparents are Mexican actors Antonio Aguilar and Flor Silvestre. In July 2018, Aguilar joined forces with Voto Latino to encourage more Latin American people to vote in American elections.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/majah-hype-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Majah Hype</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/IrqGkKjWL7k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Angela Aguilar Education:**
@@ -101,6 +103,8 @@ Angela earns approximately $80,000 per month.
 ## **Angela Aguilar Height:**
 
 Angela is 5 feet 7 inches(1.7 m) and weighs 128 Lbs(58 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/david-grutman-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">David Grutman</a>**
 
 ![Angela Aguilar Net Worth And Biography](/uploads/angela-aguilar-net-worth.webp)
 
@@ -132,3 +136,5 @@ No, Angela is currently single.
 * Her grandfather was the iconic Antonio Aguilar, the late Mexican singer. 
 * Her grandmother is the legendary singer/actress Flor Silvestre and her father is the multiple Grammywinning Pepe Aguilar. 
 * At 15, Angela is a 2019 Grammy nominated for Latin Grammy Award.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

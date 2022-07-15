@@ -12,7 +12,7 @@ meta_Keywords: Supreme Patty Net Worth
 url: supreme-patty-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-21T06:25:58.946Z
-updateDate: 2022-03-21T06:40:04.554Z
+updateDate: 2022-07-15T05:33:35.946Z
 featured_Image: /uploads/supreme-patty-net-worth-bio-and-details-.webp
 categories:
   - Rapper

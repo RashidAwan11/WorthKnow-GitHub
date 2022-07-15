@@ -68,7 +68,7 @@ faqs:
   </table>
 </figure>
 
-##  **Introduction Anne Marie:**
+## **Introduction Anne Marie:**
 
 Anne Marie is a singer and songwriter from East Tilbury, United Kingdom.
 
@@ -79,6 +79,8 @@ Anne Marie was born on April 7, 1991, and she is 31 years old.
 ## **Anne Marie Personal life/Biography:**
 
 Anne Marie grew up in East Tilbury, United Kingdom. Her father was a truck driver and her mother was a housewife. When Anne Marie was 11 years old, she started playing the guitar and singing. After a few years of playing gigs locally, she released her debut EP, "Karima," in 2013.
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/el-lfa-net-worth-bio-age-family-friends-height-salary/" target="_blank" rel="noopener">El Lfa</a>**
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/w93jNuQhhXE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
@@ -101,6 +103,8 @@ Anne Marie's salary is not publicly available.
 ## **Anne Marie Height:**
 
 Anne Marie is approximately five feet tall and her weight is also not publicly available.
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/dana-stubblefield-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Dana Stubblefield</a>**
 
 ![Anne Marie Net Worth Biography](/uploads/anne-marie-net-worth.webp)
 
@@ -126,3 +130,5 @@ Anne Marie has achieved a lot in her career thus far. She has released several s
 * After a few years of playing gigs locally, she released her debut EP, "Karima," in 2013.
 * Anne Marie went to the University of Essex, where she studied music but left before completing her degree to pursue her music career. 
 * Anne Marie's most successful single to date is "Alarm," which peaked at number two on the UK Singles Chart.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

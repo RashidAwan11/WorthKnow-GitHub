@@ -80,6 +80,8 @@ Koma was born on June 2, 1987, and he is 34 years old.
 
 Koma was born in Brooklyn, New York. His father is of Italian descent, while his mother is Jewish. He has a sister named Rachel. Koma began writing songs at the age of eight. He attended Suffern High School, where he was a member of the choir and theater group. He later studied musical theater at the University of California, Los Angeles.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/evan-hafer-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Evan Hafer</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/HtUMEPuOM4s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Matthew Koma Education:**
@@ -106,6 +108,8 @@ Matthew earns approximately $415k plus per month.
 
 He is 5'11'' tall and weighs around 68 kg.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/bandman-kevo-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Bandman Kevo</a>**
+
 ## **Is Matthew Koma Relationship Status Single/Married?**
 
 Koma is in a relationship with American actress and singer Hilary Duff. The couple has one child together, a daughter named Banks Violet Bair, born on October 25, 2018.
@@ -130,3 +134,5 @@ He won a Grammy Award for Best Dance Recording for his work on Zedd's "Clarity" 
 * The song was also certified platinum in Australia and Canada.
 * In 2014, Koma was featured on American DJ and producer Tiesto's single "Wasted", which peaked at number 43 on the Billboard Hot 100 chart.
 * In 2015, Koma released his debut extended play, Parachute, which peaked at number 24 on the US Dance/Electronic Albums chart.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

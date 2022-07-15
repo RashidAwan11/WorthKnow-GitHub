@@ -13,7 +13,7 @@ meta_Keywords: Travis Scott Net worth
 url: travis-scott-family-net-worth-bio-age-family-height-house-home-address-phone-number-email
 author: Nicholas Samantha
 date: 2022-04-14T10:59:50.511Z
-updateDate: 2022-04-14T10:59:49.993Z
+updateDate: 2022-07-15T13:57:40.081Z
 featured_Image: /uploads/travis-scott-net-worth-bio-and-details.webp
 categories:
   - Rapper
@@ -130,6 +130,8 @@ Scott was born in Dallas, Texas, United States, on April 30. He grew up in Oak C
 
 They both have one younger sister named Jasmine. He attended Oak Cliff High School. Scott's parents divorced when he was young. He was raised by his mother, Lula, and his grandmother, Alice. His father, Jacques Webster, died of a heart attack when he was seven years old. 
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/ethan-cutkosky-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Ethan Cutkosky</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/QV9nArq7phA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Travis Scott Education:**
@@ -156,6 +158,8 @@ Scott earns approximately $416k plus per month.
 
 Scott is 5 feet 10 inches(177 cm) and weighs 147 lbs(67 kg).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/willie-falcon-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Willie Falcon</a>**
+
 ## **Is Travis Scott's Relationship Status Single/Married?**
 
 Yes, Travis is married.
@@ -181,3 +185,5 @@ Scott has been nominated for eight Grammy Awards and won a Billboard Music Award
 * He Originally Planned to Self-Release His Music.
 * His First Band Was Called The Graduates.
 * He Isn't Afraid to Make Big Gestures for Love.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

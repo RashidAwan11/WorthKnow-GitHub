@@ -12,7 +12,7 @@ meta_Keywords: Nic Kerdiles Net Worth
 url: nic-kerdiles-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-05-30T07:34:08.873Z
-updateDate: 2022-05-30T07:34:08.193Z
+updateDate: 2022-07-15T04:53:51.544Z
 featured_Image: /uploads/nic-kerdiles-net-worth-bio-and-details.webp
 categories:
   - Sports
@@ -79,6 +79,8 @@ Nicolas Kerdiles was born on January 11, 1994, and he is 28 years old.
 
 Nicolas Kerdiles was born in Irvine, California, and grew up in Lewisville, Texas. He is of French-Canadian descent. His father, Marc, is from Quebec and his mother, Sylvie, is from France.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/jasmine-guy-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Jasmine Guy</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/DL1SJQYx5xo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Nic Kerdiles Education:**
@@ -104,6 +106,8 @@ Nic Kerdiles earns approximately $60,000 per month.
 ## **Nic Kerdiles Height:**
 
 Nic Kerdiles is 6 feet 2 inches tall and weighs 201 pounds
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/jennifer-todryk-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Jennifer Todryk</a>**
 
 ![Nic Kerdiles Net Worth Biography](/uploads/nic-kerdiles-net-worth-.webp)
 
@@ -135,3 +139,5 @@ Nic Kerdiles is in a relationship with his girlfriend, who is a model. The coupl
 * In his first season with Kelowna, Kerdiles had 19 goals and 45 points in 64 games. He also added five goals and 11 points in 21 playoff games as the Rockets won the WHL Championship.
 * Kerdiles was drafted by the Anaheim Ducks in the second round of the 2012 NHL Entry Draft, 36th overall. 
 * Kerdiles made his professional debut with the Ducks' AHL affiliate, the Norfolk Admirals, in 2013. In 2014, he was called up to the Ducks and made his NHL debut.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

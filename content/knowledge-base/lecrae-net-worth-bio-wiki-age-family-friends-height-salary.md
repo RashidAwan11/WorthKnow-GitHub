@@ -10,7 +10,7 @@ meta_Keywords: Lecrae Net Worth
 url: lecrae-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-21T10:13:12.667Z
-updateDate: 2022-03-21T11:54:12.069Z
+updateDate: 2022-07-15T05:37:57.474Z
 featured_Image: /uploads/lecrae-net-worth-bio-and-details.webp
 categories:
   - Singer
@@ -83,6 +83,8 @@ Born and raised by his single mother south of Houston, Texas, Lecrae often trave
 
 His first song, written for lovers and neighbours, mimicked the style of Tupac, Outkast, and the A Tribe Called Quest. At the age of 16, he began abusing drugs, fighting, was arrested for high school theft, and ended up in the gang. Lecrae tried "almost every drug he could have tried" except heroin and crack cocaine.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/chris-watts-family-net-worth-bio-age-family-height-house-home-address-phone-number-email/" target="_blank" rel="noopener">Chris Watts</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/CycgRU1VEXI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Lecrae Education:**
@@ -110,6 +112,8 @@ Lecrae earns approximately $35000 per month.
 ## **Lecrae Height:**
 
 Lecrae is 6 feet 4 inches(1.93 m) and weighs 165 Lbs(75 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/lauren-alexis-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Lauren Alexis</a>**
 
 ![Lecrae Net Worth And Biography](/uploads/lecrae-net-worth-.webp)
 
@@ -139,3 +143,5 @@ Lecrae has won many music awards over the space of his career, including two Gra
 * Lecrae Moore met his wife Darragh at a Bible study when they were both teenagers. They have three children together, two sons and a daughter. The family resides in Atlanta, Georgia.
 * In 2002, he was informed by his then girlfriend that she was pregnant with his child. The couple had an abortion, a decision which he has regretted since. The incident was the subject of the song ‘Good, Bad, Ugly’ from ‘Anomaly’.
 * Lecrae portrayed the character Dr. Darnall Malmquist in the 2014 independent film ‘Believe Me’.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

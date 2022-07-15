@@ -13,7 +13,7 @@ meta_Keywords: Adam Sandler Net Worth
 url: adam-sandler-family-net-worth-bio-age-family-height-house-home-address-phone-number-email
 author: Nicholas Samantha
 date: 2022-04-14T10:47:45.330Z
-updateDate: 2022-04-14T10:47:44.696Z
+updateDate: 2022-07-15T14:00:27.366Z
 featured_Image: /uploads/adam-sandler-net-worth-bio-and-details.webp
 categories:
   - Actors
@@ -130,6 +130,8 @@ Adam was born September 9, 1966, and he is 55 years old.
 
 Adam Sandler was born in New York City, New York. He was raised in Los Angeles, California. His parents are Jack Sandler and Sally Sandler. His father died when he was only 10 years old. He has two brothers named Chris.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/sean-faris-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Sean Faris</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/kYTtJb9dPvg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Adam Sandler Education:**
@@ -153,6 +155,8 @@ Adam earns approximately $4 million per month.
 ## **Adam Sandler Height:**
 
 Adam is 5 feet 9 inches(1.77 m) and weighs 189 Lbs(86 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/tammy-rivera-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Tammy Rivera</a>**
 
 ## **Is Adam Sandler Relationship Status Single/Married?**
 
@@ -185,3 +189,5 @@ Yes, Adam is married.
 * He's Really Popular On Netflix.
 * His Highest-Grossing Movie Is A Cartoon.
 * He Was Fired From 'SNL'.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

@@ -12,7 +12,7 @@ meta_Keywords: Dana Stubblefield Net Worth
 url: dana-stubblefield-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-04-06T11:35:02.402Z
-updateDate: 2022-04-06T11:35:00.774Z
+updateDate: 2022-07-15T15:08:56.761Z
 featured_Image: /uploads/dana-stubblefield-net-worth-bio-and-details.webp
 categories:
   - Sports
@@ -77,6 +77,8 @@ Dana was born 14 November 1977 and he is 51 years old.
 
 Stubblefield attended the University of Kansas. He was sentenced of 15 years to life in prison, after being convicted of rape.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/willie-falcon-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Willie Falcon</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/skckkwCRG50" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Dana Stubblefield Education:**
@@ -101,6 +103,8 @@ Dana earns approximately $32000 per month.
 
 Dana is 6 feet 2 inches(1.88 m) and weighs 290 Lbs(132 kg).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/el-lfa-net-worth-bio-age-family-friends-height-salary/" target="_blank" rel="noopener">El Lfa</a>**
+
 ![Dana Stubblefield Net Worth And Biography](/uploads/dana-stubblefield-net-worth.webp)
 
 ## **Is Dana Stubblefield Relationship Status Single/Married?**
@@ -120,3 +124,5 @@ Yes, Dana is married.
 
 * He won Super Bowl XXIX as a member of the San Francisco 49ers.
 * He was senteced to jail for 15 years in case of rape.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

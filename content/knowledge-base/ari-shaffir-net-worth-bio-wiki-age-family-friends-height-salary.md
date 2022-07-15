@@ -12,7 +12,7 @@ meta_Keywords: Ari Shaffir Net Worth
 url: ari-shaffir-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-04-19T09:29:13.252Z
-updateDate: 2022-04-19T09:29:11.882Z
+updateDate: 2022-07-15T10:20:58.481Z
 featured_Image: /uploads/ari-shaffir-net-worth-bio-and-details.webp
 categories:
   - Actors
@@ -79,6 +79,8 @@ Shaffir was born on February 12, 1974, and he is 48 years old.
 
 Shaffir was born in New York City and raised in Maryland and Virginia. He is the son of a Rabbi and he has two brothers. Shaffir graduated from the University of Maryland with a degree in communications.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/jacquees-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Jacquees</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/FjSC5Gv5eKw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Ari Shaffir Education:**
@@ -100,6 +102,8 @@ Shaffir's salary is $20 thousand per month.
 ## **Ari Shaffir Height:**
 
 Shaffir is 5 feet 10 inches tall and weighs 165 pounds.
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/shaun-t-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Shaun T</a>**
 
 ## **Is Ari Shaffir Relationship Status Single/Married?**
 
@@ -123,3 +127,5 @@ Shaffir has won two American Comedy Awards and he was named one of the 'Top 100 
 * Shaffir's favorite basketball team is the Los Angeles Lakers.
 * Shaffir is afraid of heights.
 * Shaffir has a dog named Sammy.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

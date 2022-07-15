@@ -12,7 +12,7 @@ meta_Keywords: Rauw Alejandro Net Worth
 url: rauw-alejandro-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-05-17T09:28:59.825Z
-updateDate: 2022-05-17T09:28:59.239Z
+updateDate: 2022-07-15T05:58:24.511Z
 featured_Image: /uploads/rauw-alejandro-net-worth-bio-and-details.webp
 categories:
   - Rapper
@@ -79,6 +79,8 @@ Alejandro was born on January 10, 1993, and he is 29 years old.
 
 Alejandro was born in Carolina, Puerto Rico. He has two sisters, Gabriela and Andrea. His father is from Bayamón, Puerto Rico, and his mother is from Caguas, Puerto Rico. Alejandro's parents divorced when he was five years old, and he was raised by his mother. In 2010, Alejandro moved to Miami, Florida, to pursue a career in music.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/crunchy-black-net-worth-bio-age-family-friends-height-salary/" target="_blank" rel="noopener">Crunchy Black</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/QlNZHnmvOP8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Rauw Alejandro Education:**
@@ -102,6 +104,8 @@ Alejandro earns an estimated $25,000 per month from his music career.
 ## **Rauw Alejandro Height:**
 
 Alejandro is 5 feet 7 inches (1.70 m) tall and weighs approximately 160 pounds (73 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/kendall-rae-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Kendall Rae</a>**
 
 ![Rauw Alejandro Net Worth Biography](/uploads/rauw-alejandro-net-worth-.webp)
 
@@ -129,3 +133,5 @@ Alejandro has won several awards, including the Latin Grammy Award for Best Urba
 * Alejandro attended high school in Carolina, Puerto Rico.
 * Alejandro studied at Miami Dade College.
 * Alejandro's professional career began when he was featured in the song "Dilema" by Puerto Rican singer Cosculluela.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

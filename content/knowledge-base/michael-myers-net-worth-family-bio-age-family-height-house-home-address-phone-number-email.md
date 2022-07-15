@@ -13,7 +13,7 @@ meta_Keywords: Michael Myers Net Worth
 url: michael-myers-family-net-worth-bio-age-family-height-house-home-address-phone-number-email
 author: Nicholas Samantha
 date: 2022-04-14T10:16:30.041Z
-updateDate: 2022-04-14T10:16:29.054Z
+updateDate: 2022-07-15T14:05:04.440Z
 featured_Image: /uploads/michael-myers-net-worth-bio-and-details.webp
 categories:
   - Actors
@@ -138,6 +138,8 @@ Michael had a rough childhood and his father was an alcoholic. His parents divor
 
 Michael was taken in by his aunt, uncle, and cousin. They lived in a farmhouse in Haddonfield, Illinois. Michael's aunt, Laurie Strode, was a nurse who treated Michael for his wounds after he was injured in an accident.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/jeremy-wade-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Jeremy Wade</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/fZbur_DUK0U" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Michael Myers Education:**
@@ -159,6 +161,8 @@ Michael earns approximately $2.38 million per month.
 ## **Michael Myers Height:**
 
 Michael is 6 feet 7 inches(2.01 m) and weighs 205 Lbs(92 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/ethan-cutkosky-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Ethan Cutkosky</a>**
 
 ## **Is Michael Myers Relationship Status Single/Married?**
 
@@ -183,3 +187,5 @@ Michael has won 29 awards from different stages. He is also nominated for a lot 
 * Michael has a brother named David.
 * He has a girlfriend named Laurie Strode.
 * Michael is 65 years old.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

@@ -13,7 +13,7 @@ meta_Keywords: Mark Wahlberg Net Worth
 url: mark-wahlberg-family-net-worth-bio-age-family-height-house-home-address-phone-number-email
 author: Nicholas Samantha
 date: 2022-04-15T07:36:41.967Z
-updateDate: 2022-04-15T07:36:43.119Z
+updateDate: 2022-07-15T13:52:38.110Z
 featured_Image: /uploads/mark-wahlberg-net-worth-bio-and-deatils.webp
 categories:
   - Singer
@@ -142,6 +142,8 @@ Mark Wahlberg is an American rapper and actor. He was born on June 5, 1971, in B
 
 He started acting when he was 12 years old. He acted in several television shows such as The Facts of Life, The Fresh Prince of Bel-Air, and Boy Meets World.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/judy-greer-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Judy Greer</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/qQaAYaak5_g" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Mark Wahlberg Education:**
@@ -164,6 +166,8 @@ Mark earns approximately $2 million per month.
 
 Mark is 5 feet 8 inches(172 cm) and weighs 172 Lbs(78 kg).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/rakim-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Rakim</a>**
+
 ## **Is Mark Wahlberg Relationship Status Single/Married?**
 
 Yes, Mark is married.
@@ -185,3 +189,5 @@ Mark is nominated for more than 50 awards. Otherwise, he has a huge wealth which
 Wahlberg is a distant relative of author Nathaniel Hawthorne on his mother's side. As Marky Mark, Wahlberg became the face of Calvin Klein underwear in a two-year deal.
 
 Wahlberg was born with a “supernumerary nipple” (a third nipple). Wahlberg launched his film career with 1994's Renaissance Man.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

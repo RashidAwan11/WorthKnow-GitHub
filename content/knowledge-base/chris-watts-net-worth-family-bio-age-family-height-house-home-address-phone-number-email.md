@@ -14,7 +14,7 @@ meta_Keywords: Chris Watts Net Worth
 url: chris-watts-family-net-worth-bio-age-family-height-house-home-address-phone-number-email
 author: Nicholas Samantha
 date: 2022-04-15T09:06:25.531Z
-updateDate: 2022-04-15T09:06:26.831Z
+updateDate: 2022-07-15T13:50:17.369Z
 featured_Image: /uploads/chris-watts-net-worth-bio-and-details.webp
 categories:
   - Sports
@@ -141,6 +141,8 @@ Chris Watts was born in 1985 in Oklahoma. He was a bright student and loved play
 
 In August 2018, Chris Watts murdered his wife and two young daughters in their home in Frederick, Colorado. He then disposed of their bodies in an oil field owned by his former employer. Chris Watts pleaded guilty to all three murders and was sentenced to life in prison without the possibility of parole.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/salice-rose-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Salice Rose</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/MbGl8r5MzUI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Chris Watts Education:**
@@ -163,6 +165,8 @@ Chris Watts' salary is $5,000 per month. 
 
 Chris Watts is 6 feet tall and weighs 200 pounds. 
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/rico-nasty-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Rico Nasty</a>**
+
 ## **Is Chris Watts's Relationship Status Single/Married?**
 
 Chris Watts is married to Shanann Watts.
@@ -182,3 +186,5 @@ Some of Chris Watts's achievements include being a bright student, playing footb
 * In 2010, Chris Watts married Shanann Watts, with whom he had two daughters. 
 * In August 2018, Chris Watts murdered his wife and two young daughters in their home in Frederick, Colorado. 
 * He then disposed of their bodies in an oil field owned by his former employer.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

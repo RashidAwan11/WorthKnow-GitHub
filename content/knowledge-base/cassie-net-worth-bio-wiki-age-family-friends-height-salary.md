@@ -11,7 +11,7 @@ meta_Keywords: Cassie Net Worth
 url: cassie-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-04-18T07:02:54.731Z
-updateDate: 2022-04-18T07:02:53.816Z
+updateDate: 2022-07-15T10:46:25.294Z
 featured_Image: /uploads/cassie-net-worth-bio-and-details.webp
 categories:
   - Singer
@@ -80,6 +80,8 @@ Cassie was born in New London, Connecticut, the daughter of a Filipino father an
 
 In 1999, at age 13, Cassie signed with Elite Model Management. The following year, she quit school and moved to Atlanta, Georgia with her mother to pursue a modeling career. She was featured in print ads for Tommy Hilfiger, Abercrombie & Fitch, Blumarine, and Guess?
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/lena-waithe-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Lena Waithe</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/ZNbFcJK2m_Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Cassie Education:**
@@ -120,6 +122,8 @@ Cassie is living in Huntington Beach, California.
 
 Cassie is 5 feet 3 inches tall and weighs around 121 pounds.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/lecrae-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Lecrae</a>**
+
 ## **Is Cassie Relationship Status Single/Married?**
 
 Cassie is currently in a relationship with Alex Fine. The couple got engaged in August 2019 and they have a daughter named Frankie Fine.
@@ -143,3 +147,5 @@ Cassie has won several awards throughout her career including a BET Award for Be
 * Cassie is fluent in English and Tagalog.
 * Cassie is a certified scuba diver.
 * Cassie is a vegetarian.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

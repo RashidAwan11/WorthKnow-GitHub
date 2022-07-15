@@ -11,7 +11,7 @@ meta_Keywords: Gangsta Boo Net Worth
 url: gangsta-boo-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-04-08T05:40:32.740Z
-updateDate: 2022-04-08T05:40:33.354Z
+updateDate: 2022-07-15T14:52:25.161Z
 featured_Image: /uploads/gangsta-boo-net-worth-bio-and-details.webp
 categories:
   - Actors
@@ -76,6 +76,8 @@ Gangsta was born August 7, 1979 and she is 42 years old.
 
 Lola Chantrelle Mitchell was born in the Whitehaven area of Memphis, Tennessee. She is from a middle class family that later "moved to the hood" after her parents had divorced. She started rapping at around age 14.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/teri-garr-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Teri Garr</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/0UxKmApX8To" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Gangsta Boo Education:**
@@ -100,6 +102,8 @@ Gangsta earns approximately $500 thousand per month.
 
 Gangsta Boo is 5 feet 10 inches(1.8 m) and weighs 178 Lbs(81 kg).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/george-floyd-net-worth-bio-age-family-friends-height-salary/" target="_blank" rel="noopener">George Floyd</a>**
+
 ![Gangsta Boo Net Worth And Biography](/uploads/gangsta-boo-net-worth.webp)
 
 ## **Is Gangsta Boo Relationship Status Single/Married?**
@@ -119,3 +123,5 @@ Gangsta is famous for her rap but has not been nominated for an award still.
 ## **Gangsta Boo Facts:**
 
 In the early 2000's, she underwent a religious transformation and temporarily changed her stage name to Lady Boo. She later rejected the religious transformation.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

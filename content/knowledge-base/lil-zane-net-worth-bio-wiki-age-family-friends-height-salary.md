@@ -13,7 +13,7 @@ meta_Keywords: Lil Zane Net Worth
 url: lil-zane-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-04-18T08:10:58.858Z
-updateDate: 2022-04-18T08:10:58.069Z
+updateDate: 2022-07-15T10:40:37.054Z
 featured_Image: /uploads/lil-zane-net-worth-bio-and-details.webp
 categories:
   - American Football Player
@@ -80,6 +80,8 @@ Zane was born on February 3, 1986 and he is  39 years old.
 
 Lil Zane was born in Atlanta, Georgia. He is the son of African-American and Native American descent. His mother, Lisa, is a singer and his father, Jerry, is a DJ. Zane has two brothers, Jermaine and Jevon.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/big-30-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Big 30</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/31CP7rM6i70" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Lil Zane Education:**
@@ -112,6 +114,8 @@ Lil Zane's house is located in Atlanta, Georgia. The address is 456 Pine Ridge D
 
 Lil Zane is 6 feet tall and weighs approximately 160 pounds.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/trevor-wallace-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Trevor Wallace</a>**
+
 ## **Is Lil Zane Relationship Status Single/Married?**
 
 Lil Zane is currently in a relationship with girlfriend, Sheena Evans. The couple has been together for over two years.
@@ -139,3 +143,5 @@ Lil Zane has a net worth of $8 million.
 Lil Zane is 6 feet tall and weighs approximately 160 pounds.
 
 Lil Zane is currently in a relationship with girlfriend, Sheena Evans.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

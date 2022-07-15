@@ -10,7 +10,7 @@ meta_Keywords: Jimmy Humilde Net Worth
 url: jimmy-humilde-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-24T04:38:40.704Z
-updateDate: 2022-03-24T09:23:28.578Z
+updateDate: 2022-07-15T05:48:44.007Z
 featured_Image: /uploads/jimmy-humilde-net-worth-bio-and-details.webp
 categories:
   - Businessperson
@@ -75,6 +75,8 @@ Jimmy was born on July 21, 1980 and he is 41 years old.
 
 Jimmy Humilde's courtship and Jimmy Humilde's relationship status suggest that he is currently unrelated. He is very focused on his work and does not talk much about his personal life. With over 75K followers on Instagram, it is growing in popularity. He was born in Venice, California. His parents raised him, and at the age of 21, he moved to Inglewood. He shared his famous organisation with artist Nathaniel Cano.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/lil-zane-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Lil Zane</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/YoJuu-kqGco" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Jimmy Humilde Education:**
@@ -100,6 +102,8 @@ Jimmy earns approximately $27000 per month.
 ## **Jimmy Humilde Height:**
 
 Jimmy is 5 feet 7 inches(172 cm) and weighs 167 Lbs(76 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/erica-banks-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Erica Banks</a>**
 
 ![Jimmy Humilde Net Worth And Biography](/uploads/jimmy-humilde-net-worth-.webp)
 
@@ -127,3 +131,5 @@ Jimmy has achieved his success with such humility that he was later given the la
 * He has signed acts such as Fuerza Regina and Legado 7.
 * He is the CEO of Mexican Rancho Humilde.
 * The Mexican flavour in his music has earned huge popularity.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

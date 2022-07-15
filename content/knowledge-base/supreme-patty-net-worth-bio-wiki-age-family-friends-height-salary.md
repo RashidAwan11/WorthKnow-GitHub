@@ -77,6 +77,8 @@ Supreme Patty was born on 18 December 1997 and he is 24 years old.
 
 Supreme was born in Dауtоnа Веасh, Flоrіda, to his parents Віll and Angіе Wallасе. There is one elder sister named Каtіе Wаllaсе. His parents were separated when he was only three years old. Unfortunately, he was not able to learn to teach as he was out of the word Ѕеаbrееzе Нigh Ѕchool. As a result, he visited Ѕugаr Міll Еlemеntаrу Ѕсhoоl and Оrmоnd Веасh Middle Ѕсhool. He proceed to Gainеsvіllе, Florida to get a GED at Ѕаnta Fe Соllеgе.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/travis-scott-family-net-worth-bio-age-family-height-house-home-address-phone-number-email/" target="_blank" rel="noopener">Travis Scott</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/7BT1HC17ejg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Supreme Patty Education:**
@@ -100,6 +102,8 @@ Supreme earns approximately $350,000 per month.
 ## Supreme Patty Height:
 
 Supreme height is 5 feet 10 inches(1.78 m) tall and weighs 187 Lbs(85 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/anne-marie-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Anne Marie</a>**
 
 ![Supreme Patty Net Worth And Biography](/uploads/supreme-patty-net-worth-.webp)
 
@@ -126,3 +130,5 @@ Supreme is currently unmarried.
 * The first post that he uploaded to his Instagram account was on August 29, 2013.
 * His fans are known as the Lil D*ck Gang.
 * He is a huge fan of rapper, comedian, and social media personality Fatboy SSE.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

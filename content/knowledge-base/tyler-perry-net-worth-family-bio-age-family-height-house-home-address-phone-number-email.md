@@ -13,7 +13,7 @@ meta_Keywords: Tyler Perry Net Worth
 url: tyler-perry-family-net-worth-bio-age-family-height-house-home-address-phone-number-email
 author: Nicholas Samantha
 date: 2022-04-14T10:54:54.426Z
-updateDate: 2022-04-14T10:54:53.008Z
+updateDate: 2022-07-15T13:58:55.964Z
 featured_Image: /uploads/tyler-perry-net-worth-bio-and-details.webp
 categories:
   - Actors
@@ -130,6 +130,8 @@ Tyler was September 13, 1969, and he is 52 years old.
 
 His father was a preacher and his mother was a teacher. He grew up in a religious household and he had a very strict upbringing. There is no more information about his family.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/maile-flanagan-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Maile Flanagan</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/KEo2fjdTDOg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Tyler Perry Education:**
@@ -154,6 +156,8 @@ Tyler eans approximately $12 million per month.
 
 Tyler is 6 feet 4 inches(193 m) and weighs 224 Lbs(102 kg).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/pedro-rivera-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Pedro Rivera</a>**
+
 ## **Is Tyler Perry's Relationship Status Single/Married?**
 
 Yes, Perry is married.
@@ -177,3 +181,5 @@ Perry has a prolific output of stories, including his movies "Why Did I Get Marr
 * Madea, his long-running character, was originally intended as a small role in one of his plays.
 * He was nervous the first time he directed a movie.
 * He is in a long-running feud with Spike Lee.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

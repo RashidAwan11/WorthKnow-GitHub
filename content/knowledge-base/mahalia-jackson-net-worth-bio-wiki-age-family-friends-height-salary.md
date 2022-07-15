@@ -12,7 +12,7 @@ meta_Keywords: Mahalia Jackson Net Worth
 url: mahalia-jackson-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-04-09T10:53:21.147Z
-updateDate: 2022-04-09T10:53:22.019Z
+updateDate: 2022-07-15T14:33:50.277Z
 featured_Image: /uploads/mahalia-jackson-net-worth-bio-and-details.webp
 categories:
   - Singer
@@ -79,6 +79,8 @@ Mahalia Jackson was born to Charity Clark and Johnny Jackson, stevedore and a we
 
 Both groups of Mahalia's grandparents were born into slavery, his paternal grandparents in the rice fields and his maternal grandmother in the cotton fields of Pointe Coupee Parish about 160 miles north of New Orleans.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/shannon-tweed-simmons-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Shannon Tweed Simmons</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/a0tKEpJFYYI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Mahalia Jackson Education:**
@@ -99,6 +101,8 @@ At the age of 60 Mahalia had an estimated net worth of $1 million.
 
 Mahalia earned approximately $20000 plus per month.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/chris-erez-net-worth-bio-age-family-friends-height-salary/" target="_blank" rel="noopener">Chris Erez</a>**
+
 ![Mahalia Jackson Net Worth And Biography](/uploads/mahalia-jackson-net-worth.webp)
 
 ## **Is Mahalia Jackson Relationship Status Single/Married?**
@@ -114,3 +118,5 @@ Mahalia won four Grammy Awards in her life.
 * Queen of Gospel Song.” Jackson was brought up in a strict religious atmosphere.
 * Mahalia was died January 27, 1972.
 * She won four Grammy Awards.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

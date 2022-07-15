@@ -12,7 +12,7 @@ meta_Keywords: Fally Ipupa Net Worth
 url: fally-ipupa-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-05-29T17:17:55.684Z
-updateDate: 2022-05-29T17:17:54.938Z
+updateDate: 2022-07-15T05:13:50.790Z
 featured_Image: /uploads/fally-ipupa-net-worth-bio-and-details.webp
 categories:
   - Singer
@@ -80,6 +80,8 @@ Fally Ipupa was born December 14, 1977, and he is 44 years old.
 
 Ipupa was born in Kinshasa, the Democratic Republic of Congo. His father, Aimé Ipupa N'Simba, was a professional footballer for AS Vita Club and the Zaire national team. His mother was a teacher. Ipupa has four brothers and one sister.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/natanael-cano-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Natanael Cano</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/qV6rByoUAd0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Fally Ipupa Education:**
@@ -101,6 +103,8 @@ Fally Ipupa's salary is unknown.
 ## **Fally Ipupa Height:**
 
 Fally Ipupa is 5 feet 10 inches (1.78 m) tall and his weight is unknown.
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/d-smoke-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">D Smoke</a>**
 
 ![Fally Ipupa Net Worth Biography](/uploads/fally-ipupa-net-worth-.webp)
 
@@ -125,3 +129,5 @@ Ipupa has won numerous awards, including the MTV Africa Music Award for Artist o
 * Fally Ipupa is 5 feet 10 inches (1.78 m) tall.
 * Fally Ipupa is married to Charlotte Dipanda and they have two children together.
 * Fally Ipupa has won numerous awards, including the MTV Africa Music Award for Artist of the Year, the BET Award for Best International Act, and the Afrima Award for Song of the Year.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

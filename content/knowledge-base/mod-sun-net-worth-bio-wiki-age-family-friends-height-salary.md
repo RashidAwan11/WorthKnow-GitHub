@@ -11,7 +11,7 @@ meta_Keywords: Mod Sun Net Worth
 url: Mod-Sun-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-04-25T00:08:18.023Z
-updateDate: 2022-04-25T00:08:15.641Z
+updateDate: 2022-07-15T10:18:28.560Z
 featured_Image: /uploads/mod-sun-net-worth-bio-and-details.webp
 categories:
   - Writer
@@ -80,6 +80,8 @@ Born in Iowa, Mod Sun moved to Minnesota at a young age where he began playing d
 
 The following year, he signed with Rostrum Records and released his second mixtape, entitled Pilgrimage. His debut studio album, Look Up, was released in 2017.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/bia-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Bia</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/vVca-NJhUVw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Mod Sun Education:**
@@ -108,6 +110,8 @@ Mod Sun is 6 feet tall and weighs approximately 160 pounds.
 
 Mod Sun is currently in a relationship with Bella Thorne. The couple has been dating since 2017.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/shannon-tweed-simmons-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Shannon Tweed Simmons</a>**
+
 ![Mod Sun Net Worth And Biography](/uploads/mod-sun-net-worth-.webp)
 
 ## **Mod Sun Achievements:**
@@ -128,3 +132,5 @@ In 2017, Mod Sun's debut studio album, Look Up, peaked at number one on the Bill
 * The following year, he signed with Rostrum Records and released his second mixtape, entitled Pilgrimage.
 * His debut studio album, Look Up, was released in 2017.
 * He has collaborated with a number of artists, including Wiz Khalifa, Machine Gun Kelly, Blackbear, and Travis Barker.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

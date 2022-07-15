@@ -12,7 +12,7 @@ meta_Keywords: Aries Spears Net Worth
 url: aries-spears-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-06-01T09:51:26.314Z
-updateDate: 2022-06-01T09:51:25.468Z
+updateDate: 2022-07-15T04:33:13.620Z
 featured_Image: /uploads/aries-spears-net-worth-bio-and-details.webp
 categories:
   - Actors

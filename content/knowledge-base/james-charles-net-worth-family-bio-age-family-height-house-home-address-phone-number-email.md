@@ -14,7 +14,7 @@ meta_Keywords: James Charles Net Worth
 url: james-charles-family-net-worth-bio-age-family-height-house-home-address-phone-number-email
 author: Nicholas Samantha
 date: 2022-04-15T07:53:17.690Z
-updateDate: 2022-04-15T07:53:17.036Z
+updateDate: 2022-07-15T13:51:35.464Z
 featured_Image: /uploads/james-charles-net-worth-bio-and-details.webp
 categories:
   - Artist
@@ -143,6 +143,8 @@ He is also the owner of the James Charles cosmetics line. It is a makeup brand t
 
 James Charles is also an influencer for CoverGirl. He has been featured in several commercials for CoverGirl. He is the winner of the 2017 and 2018 Makeup Artist of the Year awards. James Charles is also the winner of the 2017 Makeup Artist of the Year award. He is a model for CoverGirl.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/shy-glizzy-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Shy Glizzy</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/P8qQWNTUt2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **James Charles Education:**
@@ -165,6 +167,8 @@ James earns approximately $160k plus per month.
 
 James is 5 feet 8 inches(174 cm) and weighs 132 Lbs(60 kg).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/supreme-patty-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Supreme Patty</a>**
+
 ## **Is James Charles Relationship Status Single/Married?**
 
 No, James is currently unmarried.
@@ -184,3 +188,5 @@ Makeup maestro James Charles is the epitome of social media success. Just three 
 ## **James Charles Facts:**
 
 Charles is most known for his YouTube channel focusing on makeup, which he launched on December 1, 2015. It currently has 19.5 million subscribers, making him the most subscribed beauty guru.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

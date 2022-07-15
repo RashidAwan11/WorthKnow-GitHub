@@ -10,7 +10,7 @@ meta_Keywords: D Smoke Net Worth
 url: d-smoke-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-04-01T05:38:05.221Z
-updateDate: 2022-04-01T05:38:06.082Z
+updateDate: 2022-07-15T14:40:57.593Z
 featured_Image: /uploads/d-smoke-net-worth-bio-and-details.webp
 categories:
   - Rapper
@@ -75,6 +75,8 @@ D Smoke was born October 17, 1985 and he is 36 years old.
 
 D Smoke grew up in a musical family with his mother, brothers, and cousin being gospel singers in Inglewood, California. His mother was a backup singer for Tina Turner. His brother SiR is signed to Top Dawg Entertainment.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/phoebe-tonkin-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Phoebe Tonkin</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/koOhhn0O9cY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **D Smoke Education:**
@@ -96,6 +98,8 @@ D Smoke earns approximately $20,000 per year.
 ## **D Smoke Height:**
 
 D Smoke is 5 feet 10 inches(1.78 m) and weighs 156 Lbs(72 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/natanael-cano-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Natanael Cano</a>**
 
 ![D Smoke Net Worth And Biography](/uploads/d-smoke-net-worth-.webp)
 
@@ -122,3 +126,5 @@ D Smoke is not married yet.
 * He used to be a teacher.
 * He is from a musical family.
 * He is not “new” to music.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

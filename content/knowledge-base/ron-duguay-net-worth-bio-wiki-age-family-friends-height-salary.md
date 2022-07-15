@@ -12,7 +12,7 @@ meta_Keywords: Ron Duguay Net Worth
 url: ron-duguay-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-05-17T11:29:05.106Z
-updateDate: 2022-05-17T11:29:03.809Z
+updateDate: 2022-07-15T05:37:42.561Z
 featured_Image: /uploads/ron-duguay-net-worth-bio-and-details.webp
 categories:
   - Sports
@@ -81,6 +81,8 @@ Ronald Duguay was born in Sudbury, Ontario. He played his junior hockey with the
 
 Duguay made his NHL debut with the Rangers during the 1977-78 season. He scored 20 goals and 37 points as a rookie and followed that up with a 27 goal, 62-point performance in his second year. Duguay would go on to have a long and productive career in the NHL, spending time with the Rangers, Los Angeles Kings, Detroit Red Wings, and Pittsburgh Penguins. He retired from playing in 1989 after scoring 231 goals and 495 points in 719 career games.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/james-cromwell-net-worth-bio-age-family-friends-height-salary/" target="_blank" rel="noopener">James Cromwell</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/0zQX7xrqEYA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Ron Duguay Education:**
@@ -104,6 +106,8 @@ Ron Duguay's salary is unknown.
 ## **Ron Duguay Height:**
 
 Ron Duguay is 6 feet 0 inches tall and weighs 200 pounds.
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/lena-waithe-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Lena Waithe</a>**
 
 ![Ron Duguay Net Worth Biography](/uploads/ron-duguay-net-worth-.webp)
 
@@ -136,3 +140,5 @@ Ronald Duguay played 12 seasons in the NHL from 1977 to 1989.
 Ron Duguay has an estimated net worth of $5 million. 
 
 Ron Duguay is married to his wife, Kimberly. The couple has two children together.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

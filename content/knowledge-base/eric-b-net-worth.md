@@ -12,7 +12,7 @@ meta_Keywords: Eric B Net Worth
 url: eric-b-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-05-27T12:08:42.350Z
-updateDate: 2022-05-27T12:08:41.762Z
+updateDate: 2022-07-15T05:27:29.710Z
 featured_Image: /uploads/eric-b-net-worth-bio-and-details.webp
 categories:
   - Rapper
@@ -80,6 +80,8 @@ Eric B was born November 8, 1963, and he is 58 years old.
 Eric B was born in Queens, New York, on November 8, 1963. His father was a postal worker and his mother was a homemaker. Eric B grew up listening to a wide range of music, including R&B, jazz, and soul. He began DJing while in high school and soon after formed the hip hop duo Eric B. & Rakim with his friend and fellow rapper Rakim.
 
 The duo released their debut album, Paid in Full, in 1987 to critical and commercial acclaim. They went on to release four more albums before disbanding in 1993. Eric B has since continued to work as a producer and DJ, collaborating with a number of artists including LL Cool J, Busta Rhymes, and Mary J. Blige.
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/chris-norton-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Chris Norton</a>**
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/JR2j5q39lrw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 

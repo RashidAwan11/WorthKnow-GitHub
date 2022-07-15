@@ -11,7 +11,7 @@ meta_Keywords: Nick Gordon Net Worth
 url: nick-gordon-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-05-31T07:21:06.387Z
-updateDate: 2022-05-31T07:21:05.594Z
+updateDate: 2022-07-15T04:45:27.280Z
 featured_Image: /uploads/nick-gordon-net-worth-bio-and-details.webp
 categories:
   - Actors
@@ -76,6 +76,8 @@ Nick Gordon was born on May 5, 1990, and he was 30 years old.
 
 Nick Gordon was born in Massachusetts to Michelle and Jack Gordon. He has a sister named Ashley. When he was younger, his parents got divorced and his father went to jail for attempted murder. Nick's mother struggled with drug addiction and he was raised by his grandmother, Delores.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/joe-giudice-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Joe Giudice</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/wESH1qnzRVo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Nick Gordon Education:**
@@ -97,6 +99,8 @@ Nick Gordon's salary is unknown.
 ## **Nick Gordon Height:**
 
 Nick Gordon's height is 6 feet 2 inches (188 cm) and his weight is unknown.
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/darlene-ortiz-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Darlene Ortiz</a>**
 
 ![Nick Gordon Net Worth Biography](/uploads/nick-gordon-net-worth-.webp)
 
@@ -123,3 +127,5 @@ In 2014, he co-wrote a book with his sister called "My Sister's Keeper: A Memoir
 * Nick Gordon dropped out of high school in the ninth grade.
 * In 2012, Nick Gordon was reportedly working as a transporter for a medical company.
 * In 2014, he co-wrote a book with his sister called "My Sister's Keeper: A Memoir," which is about their childhood and their father's incarceration.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

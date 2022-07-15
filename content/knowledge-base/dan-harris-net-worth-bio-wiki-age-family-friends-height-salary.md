@@ -12,7 +12,7 @@ meta_Keywords: Dan Harris Net Worth
 url: dan-harris-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-06-01T08:16:23.577Z
-updateDate: 2022-06-01T08:16:22.767Z
+updateDate: 2022-07-15T04:37:02.036Z
 featured_Image: /uploads/dan-harris-net-worth-bio-and-details.webp
 categories:
   - TV
@@ -79,6 +79,8 @@ Dan Harris was born on July 26, 1971, and he is 50 years old.
 
 Dan Harris was born on July 26, 1971, in Newton, Massachusetts. He is the son of Nancy (née Dorman), a former attorney, and Jay Harris, a businessman. Harris graduated from Hebrew school and had a bar mitzvah ceremony. He attended Brookline High School, where he played basketball and lacrosse. Harris later attended Colby College, where he graduated with a bachelor's degree in history in 1993.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/theo-von-net-worth-bio-age-family-friends-height-salary/" target="_blank" rel="noopener">Theo Von</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/Cr2Z89HkxRs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Dan Harris Education:**
@@ -103,6 +105,8 @@ Dan Harris' salary is estimated to be $1 million per month.
 
 Dan Harris is approximately six feet tall and weighs 145 pounds.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/wells-adams-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Wells Adams</a>**
+
 ![Dan Harris Net Worth Biography](/uploads/dan-harris-net-worth-.webp)
 
 ## **Is Dan Harris's Relationship Status Single/Married?**
@@ -117,7 +121,7 @@ Dan Harris is married to his wife, Bianca Harris. The couple has two children to
 * In 2015, Harris launched the "Ten Percent Happier" app, which is a meditation app designed for skeptics.
 * The app offers a variety of guided meditations as well as tips and advice for living a more mindful life.
 * As of 2019, the app has been downloaded more than three million times.
-*  Harris is also the host of the "Ten Percent Happier" podcast, which features interviews with guests about meditation and mindfulness.
+* Harris is also the host of the "Ten Percent Happier" podcast, which features interviews with guests about meditation and mindfulness.
 * The podcast has been downloaded more than 100 million times and was named one of the best podcasts of 2018 by Apple.
 
 ## **Dan Harris Social Media:**
@@ -134,3 +138,5 @@ Dan Harris is married to his wife, Bianca Harris. The couple has two children to
 * Dan Harris is married to his wife, Bianca Harris. The couple has two children together.
 * Dan Harris is the host of the "Ten Percent Happier" podcast.
 * The podcast has been downloaded more than 100 million times and was named one of the best podcasts of 2018 by Apple.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

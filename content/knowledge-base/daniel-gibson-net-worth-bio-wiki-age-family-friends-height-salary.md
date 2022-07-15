@@ -12,7 +12,7 @@ meta_Keywords: Daniel Gibson Net Worth
 url: daniel-gibson-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-05-16T07:55:56.498Z
-updateDate: 2022-05-16T07:55:54.875Z
+updateDate: 2022-07-15T10:15:46.164Z
 featured_Image: /uploads/daniel-gibson-net-worth-bio-and-details.webp
 categories:
   - Sports
@@ -83,6 +83,8 @@ Gibson was born in Houston, Texas. He has two older sisters, and his parents div
 
 Gibson attended Jones High School in Houston and was a three-time all-state selection. He played college basketball for the University of Texas at Austin from 2004 to 2008.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/angela-aguilar-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Angela Aguilar</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/0VJhc_xGg7Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Daniel Gibson Professional Career:**
@@ -100,6 +102,8 @@ Daniel Gibson earns approximately $420k per month.
 ## **Daniel Gibson Height:**
 
 Gibson is 6 feet 2 inches tall and weighs 200 pounds.
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/hannah-ferrier-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Hannah Ferrier</a>**
 
 ![Daniel Gibson Net Worth Biography](/uploads/daniel-gibson-net-worth-.webp)
 
@@ -128,3 +132,5 @@ In 2009, Gibson won the Three-Point Shootout competition during NBA All-Star Wee
 * Gibson was drafted by the Cleveland Cavaliers in the 2006 NBA draft with the 60th overall pick.
 * He played for the Cavaliers from 2006 to 2010, and for the Los Angeles Clippers in 2011.
 * Gibson has also played for the Houston Rockets, Milwaukee Bucks, and New Orleans Pelicans.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

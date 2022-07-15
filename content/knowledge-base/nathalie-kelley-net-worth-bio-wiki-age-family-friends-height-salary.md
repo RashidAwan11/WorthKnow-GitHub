@@ -12,7 +12,7 @@ meta_Keywords: Nathalie Kelley Net Worth
 url: nathalie-kelley-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-04-08T09:55:36.619Z
-updateDate: 2022-04-08T09:55:35.893Z
+updateDate: 2022-07-15T14:37:48.660Z
 featured_Image: /uploads/nathalie-kelley-net-worth-bio-and-details.webp
 categories:
   - Actors
@@ -77,6 +77,8 @@ Nathalie Kelley was born 5 October 1984 and she is 37 years old.
 
 Kelley was born in Lima, Peru, to a Peruvian mother and an Argentine father. She moved to Sydney at the age of three. From an early age, she dreamed of becoming an actress. She attended North Sydney Girls High School.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/irene-ryan-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Irene Ryan</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/wr630TUNTVo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Nathalie Kelley Education:**
@@ -98,6 +100,8 @@ Nathalie Kelley earns approximately $55,000 per month.
 ## **Nathalie Kelley Height:**
 
 Nathalie is 5 feet 6 inches(168 cm) and 121 Lbs(55 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/shyne-net-worth-bio-age-family-friends-height-salary/" target="_blank" rel="noopener">Shyne</a>**
 
 ![Nathalie Kelley Net Worth And Biography](/uploads/nathalie-kelley-net-worth-.webp)
 
@@ -130,3 +134,5 @@ Nathalie is a very famous actress but she hasn't won any award yet.
 * Was cast as the lead in an Aaron Spelling pilot called Mermaids, but the show ultimately wasn't picked up.
 * Appeared in the music video for Bruno Mars' "Just the Way You Are" in 2010.
 * Volunteered with Indigenous Australians in inner-city Sydney.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

@@ -9,7 +9,7 @@ meta_Keywords: Raymond Santana Net Worth
 url: raymond-santana-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-24T04:24:37.975Z
-updateDate: 2022-03-24T04:38:22.937Z
+updateDate: 2022-07-15T05:47:34.103Z
 featured_Image: /uploads/raymond-santana-net-worth-bio-and-details.webp
 categories:
   - Businessperson
@@ -74,6 +74,8 @@ Raymond Santana was born on September 7, 1974, in Atlanta Georgia in the United 
 
 Raymond Santana Jr. is one of the five teenagers accused of the controversial Central Park joggers case. He was put behind bars with Korey Wise, Kevin Richardson, Antron McCray, and Yusef Salaam. They were named the Central Park Five and were supposed to be put on trial for 5 to 10 years. He is a successful businessman and activist at present. He has his own clothing company Park Madison NYC.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/natalie-desselle-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Natalie Desselle</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/THcGgWvZYP8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Raymond Santana Education:**
@@ -102,6 +104,8 @@ Raymond earns approximately $500 thousand per month.
 
 Raymond is 5 feet and 10 inches(1.8 m) and weighs 178 Ibs(81 kgs).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/colion-noir-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Colion Noir</a>**
+
 ![Raymond Santana Net Worth And Biography](/uploads/raymond-santana-net-worth-.webp)
 
 ## **Is Raymond Santana Relationship Status Single/Married?**
@@ -127,3 +131,5 @@ Yes, Raymond is married.
 * He was put on trial in 1989.
 * His clothing company is Park Madison, NYC.
 * He is married to Chandra London Davis.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

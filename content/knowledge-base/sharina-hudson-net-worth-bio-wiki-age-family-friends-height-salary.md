@@ -11,7 +11,7 @@ meta_Keywords: Sharina Hudson Net Worth
 url: sharina-hudson-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-04-05T07:02:39.941Z
-updateDate: 2022-04-05T07:02:38.615Z
+updateDate: 2022-07-15T15:01:19.444Z
 featured_Image: /uploads/sharina-hudson-net-worth-bio-and-details.webp
 categories:
   - Doctor
@@ -76,6 +76,8 @@ Sharina was born on 1 march 1985 and she is 37 years old. 
 
 Sharina Hudson is a renowned Afro-American massage therapist who plies her trade in Hollywood. Sharina Hudson caught the attention of the public after having an alleged affair with the ex-husband of Wendy Williams and famous TV host and author, Kevin Hunter. 
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/shordie-shordie-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Shordie Shordie</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/FqksyyICNt0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Sharina Hudson Education:**
@@ -100,6 +102,8 @@ Sharine earns approximately $200k per month.
 
 Sharina is 5 feet 8 inches(1.76 m) and weighs 132 Lbs(60 kg).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/adam-lz-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Adam Lz</a>**
+
 ![Sharina Hudson Net Worth And Biography](/uploads/sharina-hudson-net-worth.webp)
 
 ## **Is Sharina Hudson Relationship Status Single/Married?**
@@ -120,3 +124,5 @@ Sharina is a famous personality but not nominated for an award.
 * She shares a daughter with Kevin named Journey Hunter.
 * She is about 60 kg.
 * She is not available on any social media platforms like Instagram, Twitter, Facebook, etc.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

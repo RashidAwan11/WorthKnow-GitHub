@@ -81,6 +81,8 @@ Faze Swagg was born on May 14, 1996, and he is 26 years old.
 
 Lamberson was born in San Diego, California, and grew up in Riverside, California. He is of Mexican descent. His father was a professional wrestler and his mother was a ring announcer. Lamberson's parents divorced when he was young and he was raised by his mother. Lamberson began playing video games at a young age.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/tee-grizzley-net-worth-bio-age-family-friends-height-salary/" target="_blank" rel="noopener">Tee Grizzley</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/Fd8CF8B4yJI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Faze Swagg Education:**
@@ -114,6 +116,8 @@ Lamberson earns a salary of $60 thousand per year from his content creation and 
 
 Faze Swagg is approximately five feet seven inches tall and weighs around 150 pounds.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/jason-tartick-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Jason Tartick</a>**
+
 ![Faze Swagg Net Worth Biography](/uploads/faze-swagg-net-worth-.webp)
 
 ## **Is Faze Swagg Relationship Status Single/Married?**
@@ -139,3 +143,5 @@ Faze Swagg is currently single. He was previously in a relationship with social 
 * Lamberson is a native of the United States.
 * He began his professional gaming career in 2015.
 * Lamerson is also a music producer and has released several songs on SoundCloud.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

@@ -12,7 +12,7 @@ meta_Keywords: Joshua Bassett Net Worth
 url: joshua-bassett-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-05-17T06:36:54.936Z
-updateDate: 2022-05-17T06:36:54.256Z
+updateDate: 2022-07-15T09:59:43.073Z
 featured_Image: /uploads/joshua-bassett-net-worth-bio-and-details.webp
 categories:
   - Singer
@@ -79,6 +79,8 @@ Joshua Bassett was born on December 22, 2000 and he is 21 years old.
 
 Joshua Bassett was born in Orem, Utah, United States to parents Jody Bassett and Lyman Bassett. He has five siblings, three sisters named Lily, Grace, and Olivia Bassett, and two brothers named Jason Bassett and Logan Bassett. His father is a businessman while his mother is a stay-at-home mom.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/sharina-hudson-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Sharina Hudson</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/Sr0CixBfzCE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Joshua Bassett Education:**
@@ -105,6 +107,8 @@ Bassett earns approximately $8k plus per month.
 
 Joshua Bassett’s height is 5 feet 10 inches (178 cm) and his weight is around 68 kg (150 lbs.).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/sean-faris-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Sean Faris</a>**
+
 ![Joshua Bassett Net Worth Biography](/uploads/joshua-bassett-net-worth.webp)
 
 ## **Is Joshua Bassett Relationship Status Single/Married?**
@@ -129,3 +133,5 @@ Joshua Bassett’s most notable achievement is his work on the Disney+ series Hi
 * He loves to play the guitar and piano.
 * His favorite sport is swimming.
 * Joshua Bassett’s favorite TV show is The Office.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

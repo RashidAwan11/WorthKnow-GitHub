@@ -12,7 +12,7 @@ meta_Keywords: Junior H Net Worth
 url: junior-h-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-05-27T11:29:57.697Z
-updateDate: 2022-05-27T11:29:56.900Z
+updateDate: 2022-07-15T05:36:19.497Z
 featured_Image: /uploads/junior-h-net-worth-bio-and-details.webp
 categories:
   - Artist
@@ -77,6 +77,8 @@ Junior H was born on February 7, 2000, and he is 22 years old.
 
 Born and raised in Inglewood, California, Junior H is of Mexican descent. His father is from Sinaloa, Mexico, and his mother is from Jalisco, Mexico. Junior H began making music at the age of 16. He cites influences such as Bad Bunny, Bryant Myers, Cosculluela, and Ozuna.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/chad-wheeler-net-worth-bio-age-family-friends-height-salary/" target="_blank" rel="noopener">Chad Wheeler</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/dY3rfrlMkPc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Junior H Education:**
@@ -105,6 +107,8 @@ Junior H's salary is $100,000.
 
 Junior H is 5 feet 8 inches tall and weighs 145 pounds.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/andy-dick-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Andy Dick</a>**
+
 ![Junior H Net Worth And Biography](/uploads/junior-h-net-worth-.webp)
 
 ## **Is Junior H Relationship Status Single/Married?**
@@ -130,3 +134,5 @@ Junior H is single.
 * Junior H's net worth is $1 million.
 * Junior H's salary is $100,000.
 * Junior H was born on February 7, 2000, and he is 22 years old.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

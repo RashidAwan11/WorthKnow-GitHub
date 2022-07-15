@@ -11,7 +11,7 @@ meta_Keywords: Nivea Net Worth
 url: nivea-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-05-28T10:09:20.649Z
-updateDate: 2022-05-28T10:09:22.003Z
+updateDate: 2022-07-15T05:16:32.220Z
 featured_Image: /uploads/nivea-net-worth-bio-and-details.webp
 categories:
   - Artist
@@ -79,6 +79,8 @@ Nivea was born on March 24, 1982, and she is 40 years old.
 
 Nivea was born on March 24, 1982, in Germany. Her full name is Nivea Maria Hamilton. She has four siblings: two brothers and two sisters. Her father passed away when she was only three years old. When she was 10 years old, her family moved to New York City in the United States. 
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/mason-ramsey-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Mason Ramsey</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/p4hZlIRVcB0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Nivea Education:**
@@ -100,6 +102,8 @@ Nivea’s salary is not publicly available.
 ## **Nivea Height:**
 
 Nivea is 5 feet 10 inches tall and weighs is not publicly available.
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/ms-london-net-worth-bio-age-family-friends-height-salary/" target="_blank" rel="noopener">Ms London</a>**
 
 ![Nivea Net Worth Biography](/uploads/nivea-net-worth.webp)
 
@@ -126,3 +130,5 @@ Nivea has won numerous awards throughout her career. In 2009, she was named “M
 * Nivea’s career began when she was signed by the Ford modeling agency at the age of 19.
 * In 2009, she became the face of the German cosmetics brand Nivea.
 * Nivea is 5 feet 10 inches tall and weighs is not publicly available.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

@@ -13,7 +13,7 @@ meta_Keywords: Tim Cappello Net Worth
 url: tim-cappello-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-04-08T07:32:39.326Z
-updateDate: 2022-04-08T07:32:37.902Z
+updateDate: 2022-07-15T14:49:22.075Z
 featured_Image: /uploads/tim-cappello-net-worth-bio-and-details.webp
 categories:
   - Writer
@@ -78,6 +78,8 @@ Tim was born May 3, 1955 and he is 66 years old.
 
 Tim was born and raised in the Silver Lake area of ​​Harrison, New York, at the time, which had a postal address in White Plains, New York. The youngest of three children, his Sicilian father was a local conductor and music teacher. 
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/trevor-wallace-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Trevor Wallace</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/sjYAyrnuZsw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Tim Cappello Education:**
@@ -100,6 +102,8 @@ Tim earns approximately $32,000 per month.
 
 Tim is 6 feet (182 m) and weighs 215 Lbs(97 kg).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/lil-bibby-net-worth-bio-age-family-friends-height-salary/" target="_blank" rel="noopener">Lil Bibby</a>**
+
 ![Tim Cappello Net Worth And Biography](/uploads/tim-cappello-net-worth-.webp)
 
 ## **Is Tim Cappello Relationship Status Single/Married?**
@@ -114,3 +118,5 @@ Tim's relationship status is unknown. However, it is said he is not married.
 ## **Tim Cappello Achievements:**
 
 Tim is a very famous musician. But he has not won any award yet. But through his musical career he earns a lot of his wealth.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

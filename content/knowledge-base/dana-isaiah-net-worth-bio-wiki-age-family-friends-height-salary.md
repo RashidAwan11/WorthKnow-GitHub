@@ -13,7 +13,7 @@ meta_Keywords: Dana Isaiah Net Worth
 url: dana-isaiah-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-05-31T09:27:12.231Z
-updateDate: 2022-05-31T09:27:09.725Z
+updateDate: 2022-07-15T04:39:22.820Z
 featured_Image: /uploads/dana-isaiah-net-worth-bio-and-details.webp
 categories:
   - Model
@@ -80,6 +80,8 @@ Dana Isaiah was born on 3 May 1992 and he is 30 years old.
 
 Dana Isaiah was born on 3 May 1992 and he is 30 years old. Dana Isaiah is married to Jordin Sparks since 2017 and they have a son named DJ. He is famously known in the country as the husband of a well-known American singer and songwriter named Jordin Sparks.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/bob-baffert-net-worth-bio-age-family-friends-height-salary/" target="_blank" rel="noopener">Bob Baffert</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/3JM9S2fagqo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Dana Isaiah Education:**
@@ -101,6 +103,8 @@ Dana Isaiah’s salary is not known.
 ## **Dana Isaiah Height:**
 
 Dana Isaiah’s height is 5 feet 10 inches (1.78 m) and their weight is 78 kg (172 lbs).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/jim-skrip-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Jim Skrip</a>**
 
 ![Dana Isaiah Net Worth Biography](/uploads/dana-isaiah-net-worth-.webp)
 
@@ -125,3 +129,5 @@ Dana Isaiah is a famous fitness freak, gym trainer, entrepreneur, celebrity spou
 * Dana Isaiah loves working out and he is also a gym trainer.
 * Dana Isaiah Net Worth: Dana Isaiah’s net worth is estimated to be around $1 million – $5 million dollars.
 * Dana Isaiah's height is 5 feet 10 inches (1.78 m) and their weight is 78 kg (172 lbs).
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

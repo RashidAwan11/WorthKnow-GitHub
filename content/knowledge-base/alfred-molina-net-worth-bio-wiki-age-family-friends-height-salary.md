@@ -13,7 +13,7 @@ meta_Keywords: Alfred Molina Net Worth
 url: alfred-molina-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-05-30T07:01:06.768Z
-updateDate: 2022-05-30T07:01:06.231Z
+updateDate: 2022-07-15T04:56:19.169Z
 featured_Image: /uploads/alfred-molina-net-worth-bio-and-details.webp
 categories:
   - TV
@@ -82,6 +82,8 @@ Alfred Molina was born Alfredo Molina on 24 May 1953 and he is 63 years old.
 
 Alfred Molina was born in London, England to a Spanish father and an Italian mother. His father, Esteban, was a musician and his mother, Giovanna, was a housewife. Alfred Molina attended Catholic schools before studying at the Guildhall School of Music and Drama.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/desi-banks-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Desi Banks</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/kee_EfQLgjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Alfred Molina Education:**
@@ -106,6 +108,8 @@ Alfred Molina earns a salary of $100,000 per episode of Better Call Saul.
 
 Alfred Molina is 6 feet tall and weighs 195 pounds.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/sheck-wes-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Sheck Wes</a>**
+
 ![Alfred Molina Net Worth Biography](/uploads/alfred-molina-net-worth-.webp)
 
 ## **Is Alfred Molina Relationship Status Single/Married?**
@@ -127,3 +131,5 @@ Molina has been nominated for several awards throughout his career, including an
 * In addition to his work in film and television, Alfred Molina has also appeared in several stage productions, including Art (1998) and Fiddler on the Roof (2004). 
 * He is a fan of the Los Angeles Dodgers and the Los Angeles Lakers.
 * Alfred Molina has been married to actress Jill Gascoine since 1985. They have two children together: Olivia and Max.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

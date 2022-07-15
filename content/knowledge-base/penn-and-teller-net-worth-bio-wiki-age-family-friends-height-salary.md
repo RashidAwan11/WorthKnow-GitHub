@@ -12,8 +12,8 @@ meta_Description: Penn and Teller are a unique team of magicians. They have a
 meta_Keywords: Penn And Teller Net Worth
 url: penn-and-teller-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
-date: 2022-07-14T10:08:36.064Z
-updateDate: 2022-07-14T10:08:35.102Z
+date: 2022-07-15T08:10:58.961Z
+updateDate: 2022-07-15T08:10:57.669Z
 featured_Image: /uploads/penn-and-teller-net-worth-bio-and-details.webp
 categories:
   - Actors
@@ -121,6 +121,8 @@ Penn & Teller earn a reported $300,000 per show in Las Vegas. They also receive 
 ## **Penn And Teller Height:**
 
 Penn Jillette is 6'7" (2.01 m) and Teller is 5'9" (1.75 m).
+
+![Penn And Teller Net Worth Biography](/uploads/penn-and-teller-net-worth.webp)
 
 ## **Is Penn And Teller Single?** 
 

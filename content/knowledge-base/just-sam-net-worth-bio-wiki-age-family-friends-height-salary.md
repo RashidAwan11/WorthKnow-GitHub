@@ -10,7 +10,7 @@ meta_Keywords: Just Sam Net Worth
 url: just-sam-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-21T07:40:46.835Z
-updateDate: 2022-03-21T08:42:03.753Z
+updateDate: 2022-07-15T05:36:05.151Z
 featured_Image: /uploads/just-sam-net-worth-bio-and-details.webp
 categories:
   - Singer
@@ -75,6 +75,8 @@ Just Sam was born November 23, 1998 and she is 23 years old.
 
 Just Sam was born and raised in Harlem, New York. When she was six years old, her grandmother, Elizabeth, married Diaz and her sister, Anabelle, after her mother was arrested. She was the title of a short documentary in 2018 called Sam, Underground, shot and produced by Joe Penney and Ladan Osman. In the film, she explained that in high school, she was harassed for the way he dressed, promoting her nickname "Just Sam". Prior to appearing on American Idol, Just Sam made a living singing underground trains, and auditioned for America's Got Talent and The American iteration, but none of them won.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/mark-wahlberg-family-net-worth-bio-age-family-height-house-home-address-phone-number-email/" target="_blank" rel="noopener">Mark Wahlberg</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/muOSdGYTTOU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Just Sam Education:**
@@ -98,6 +100,8 @@ Just Sam earns approximately $80,000 per month.
 ##  **Just Sam Height:**
 
 Just Sam is 5 feet 7 inches(1.71 m) and weighs 132 Lbs(60 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/glokknine-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Glokknine</a>**
 
 ![Just Sam Net Worth And Biography](/uploads/just-sam-net-worth-.webp)
 
@@ -131,3 +135,5 @@ After surviving Hollywood Week and making it into the Top 5, Just Sam received t
 * She Knew Her Voice Would Get Her On TV.
 * Her Grandmother Is Her Favourite Person.
 * She's Hung Out With The Cast Of Law and Order: SVU.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

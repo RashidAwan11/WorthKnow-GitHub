@@ -12,7 +12,7 @@ meta_Keywords: Uicideboy Net Worth
 url: uicideboy-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-06-01T07:36:18.561Z
-updateDate: 2022-06-01T07:36:17.627Z
+updateDate: 2022-07-15T04:38:15.082Z
 featured_Image: /uploads/uicideboy-net-worth-bio-and-details.webp
 categories:
   - Rapper
@@ -79,6 +79,8 @@ Uicideboy was born on April 11, 1989, and he is currently 30 years old.
 
 Not much is known about Uicideboy's personal life as they keep their private lives very separate from their public personas. However, it is known that both Ruby da Cherry and $uicide Christ are of African-American and Haitian descent. Uicideboy was raised in New Orleans, Louisiana. He dropped out of high school in order to pursue his music career.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/benzino-net-worth-bio-age-family-friends-height-salary/" target="_blank" rel="noopener">Benzino</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/C6PilhUI9yU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Uicideboy Education:**
@@ -107,6 +109,8 @@ Uicideboy's salary is not publicly known. However, it is believed that they make
 
 Uicideboy is believed to be around 5 feet tall and his weight is not publicly known.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/luenell-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Luenell</a>**
+
 ![Uicideboy Net Worth Biography](/uploads/uicideboy-net-worth-.webp)
 
 ## **Is Uicideboy Relationship Status Single/Married?**
@@ -132,3 +136,5 @@ Uicideboy has not publicly stated his relationship status. However, it is believ
 * Uicideboy is an American hip-hop duo from New Orleans, Louisiana.
 * The group consists of cousins Ruby da Cherry and $uicide Christ.
 * They are best known for their dark and gritty style of music, which often tackles themes such as mental health, addiction, and suicide.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

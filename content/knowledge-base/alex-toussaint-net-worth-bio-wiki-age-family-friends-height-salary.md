@@ -13,7 +13,7 @@ meta_Keywords: Alex Toussaint Net Worth
 url: alex-toussaint-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-05-17T10:08:41.462Z
-updateDate: 2022-05-17T10:08:40.524Z
+updateDate: 2022-07-15T05:54:55.072Z
 featured_Image: /uploads/alex-toussaint-net-worth-bio-and-details.webp
 categories:
   - Sports
@@ -80,6 +80,8 @@ Alex Toussaint was born on October 11th, 1985, making him 37 years old.
 
 Alex Toussaint was born in New York City and raised in the Bronx. He's been working in the fitness industry for over 10 years. Prior to joining Peloton, Alex worked as a cycling instructor at SoulCycle. He is also a certified personal trainer and has worked with clients of all fitness levels. 
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/jason-luv-net-worth-bio-age-family-friends-height-salary/" target="_blank" rel="noopener">Jason Luv</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/ZX8xOqoXz3E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Alex Toussaint Education:**
@@ -102,6 +104,8 @@ Alex Toussaint makes an estimated $3,000 per class on Peloton.
 
 Alex Toussaint is 5'11" tall and weighs 165 lbs.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/judy-greer-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Judy Greer</a>**
+
 ![Alex Toussaint Net Worth Biography](/uploads/alex-toussaint-net-worth-.webp)
 
 ## **Is Alex Toussaint's Relationship Status Single/Married?**
@@ -123,3 +127,5 @@ Alex Toussaint is one of the most popular and well-loved cycling instructors on 
 * Alex Toussaint was born on October 11th, 1985, making him 37 years old.
 * Alex Toussaint is from New York City and was raised in the Bronx.
 * Alex Toussaint attended the High School of Arts & Technology and the Fashion Institute of Technology.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

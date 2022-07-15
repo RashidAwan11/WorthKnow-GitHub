@@ -12,7 +12,7 @@ meta_Keywords: Samantha Brown Net Worth
 url: samantha-brown-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-04-08T07:48:44.002Z
-updateDate: 2022-04-08T07:48:45.660Z
+updateDate: 2022-07-15T14:46:39.949Z
 featured_Image: /uploads/samantha-brown-net-worth-bio-and-details.webp
 categories:
   - TV
@@ -79,6 +79,8 @@ Brown was born in Dallas, Texas, but her family soon moved to New Castle, New Ha
 
 She studied at Chapman University, then went to the University of Syracuse to study music. As mentioned in one of her episodes Passport to Europe, she is originally from Scotland and Germany.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/mac-demarco-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Mac Demarco</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/diWaAj417YY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Samantha Brown Education:**
@@ -103,6 +105,8 @@ Samantha earns approximately $34000 plus per month.
 
 Samantha is 5 feet 2 inches(1.6 m) and weighs 116 Lbs(53 kg).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/alex-honnold-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Alex Honnold</a>**
+
 ![Samantha Brown Net Worth And Biography](/uploads/samantha-brown-net-worth-.webp)
 
 ## **Is Samantha Brown Relationship Status Single/Married?**
@@ -118,3 +122,5 @@ Yes, Samantha is married.
 
 * Excellence Awards 2019-20 Winner: 'Individual Significant Contribution' & 2021 Finalist 'Sustainability Impact' Award.
 * Times Higher Outstanding Support Award 2007.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

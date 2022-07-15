@@ -13,7 +13,7 @@ meta_Keywords: Brian Hallisay Net Worth
 url: brian-hallisay-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-04-19T09:47:40.066Z
-updateDate: 2022-04-19T09:47:39.327Z
+updateDate: 2022-07-15T10:19:48.605Z
 featured_Image: /uploads/brian-hallisay-net-worth-bio-and-details-.webp
 categories:
   - Actors
@@ -78,6 +78,8 @@ Hallisay was born on October 31, 1978, and is 43 years old.
 
 In 2005, Brian Hallisay married his girlfriend Jennifer Love Hewitt. The couple has two children together. In 2015, the couple announced that they had split up and were getting a divorce.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/lakeith-stanfield-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Lakeith Stanfield</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/jXZHPVXo7DA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Brian Hallisay Education:**
@@ -101,6 +103,8 @@ Hallisay makes $50,000 per episode of "The Client List" and $100,000 per episode
 ## **Brian Hallisay Height:**
 
 Hallisay is 6 feet tall and weighs 185 pounds.
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/anthony-ramos-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Anthony Ramos</a>**
 
 ## **Brian Hallisay Interesting Facts:** 
 
@@ -134,3 +138,5 @@ In 2015, Brian Hallisay and Jennifer Love Hewitt announced that they were gettin
 * In 2005, Brian Hallisay married his girlfriend Jennifer Love Hewitt. The couple has two children together.
 * In 2010, Brian Hallisay was cast in the television series "The Client List" as Kyle Parks. The show was canceled after two seasons.
 * In 2013, Brian Hallisay was cast in the television series "Revenge" as Ben Hunter. The show was canceled after four seasons.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

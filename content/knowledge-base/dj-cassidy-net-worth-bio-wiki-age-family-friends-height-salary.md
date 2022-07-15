@@ -12,7 +12,7 @@ meta_Keywords: Dj Cassidy Net Worth
 url: dj-cassidy-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-04-01T07:30:20.767Z
-updateDate: 2022-04-01T07:30:19.732Z
+updateDate: 2022-07-15T14:52:20.995Z
 featured_Image: /uploads/dj-cassidy-net-worth-bio-and-details.webp
 categories:
   - Artist
@@ -79,6 +79,8 @@ Born in New York's Upper East Side, Cassidy is the second child of Monica Podell
 
 A lover of deejaying since he was a child, Cassidy said he had always been a "hip-hop kid". As a child, he watched dance films such as Breakin 'and Breakin' 2: Electric Boogaloo, and later fell in love with Grandmaster Flash, Kool Herc, and Afrika Bambaataa. His 10th birthday presents were two turntables and a mixer. He started working on youth parties, school carnivals, and talent shows at the time, from his senior year, in nightclubs.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/rotimi-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Rotimi</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/Wu9zx3Zw78I" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **DJ Cassidy Education:**
@@ -102,6 +104,8 @@ Cassidy earns approximately $32000 per month.
 ## **DJ Cassidy Height:**
 
 Cassidy is 5 feet 7 inches(1.73 m) and weighs 145 Lbs(66 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/mike-white-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Mike White</a>**
 
 ![Dj Cassidy Net Worth And Biography](/uploads/dj-cassidy-net-worth.webp)
 
@@ -131,3 +135,5 @@ With his trademark boaters, cricket sweaters, bow ties, colour-blocked tuxedos, 
 * He has been known to use a 24-carat gold microphone during live performances.
 * He is well known DJ and record producer.
 * He is unmarried.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

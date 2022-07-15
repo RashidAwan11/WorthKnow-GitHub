@@ -10,7 +10,7 @@ meta_Keywords: Flight Net Worth
 url: flight-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-30T04:39:14.187Z
-updateDate: 2022-03-30T04:54:32.871Z
+updateDate: 2022-07-15T14:25:39.163Z
 featured_Image: /uploads/flight-net-worth-bio-and-details.webp
 categories:
   - YouTuber
@@ -77,6 +77,8 @@ Born in 1995 in Luton, Bedfordshire, England, Alex Day was brought up by his mot
 
 He has an older sister, Amy, and a younger brother, Harry.At school, he was very shy and introverted but after watching a documentary about the life of artist Andy Warhol, he decided to change his appearance. He began to wear a blonde wig and blue contact lenses and dyed his hair bright orange. He also started dressing in all black and wearing dark glasses, which were a nod to the character Victor Zsasz from the film Fight Club.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/taina-williams-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Taina Williams</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/FvkYROPMkh8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Flight Education:**
@@ -102,6 +104,8 @@ Flight earns approximately $25000 per month.
 ## **Flight Height:**
 
 Flight is 6 feet 3 inces(191 cm) and weighs 157 Lbs(71 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/david-miscavige-net-worth-bio-age-family-friends-height-salary/" target="_blank" rel="noopener">David Miscavige</a>**
 
 ![Flight Net Worth And Biography](/uploads/flight-net-worth-.webp)
 
@@ -133,3 +137,5 @@ Flight is unmarried currently.
 
 * He started his journey as a musician and later changed his career to become an online influencer.
 * He has over 2.3 million subscribers on his channel. He is the youngest person to have 3.3 million subscribers on YouTube.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

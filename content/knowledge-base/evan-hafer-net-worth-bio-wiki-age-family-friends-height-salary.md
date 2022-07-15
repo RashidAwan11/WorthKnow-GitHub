@@ -11,7 +11,7 @@ meta_Keywords: Evan Hafer Net Worth
 url: evan-hafer-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-04-01T05:33:32.344Z
-updateDate: 2022-04-01T05:33:33.244Z
+updateDate: 2022-07-15T14:40:13.272Z
 featured_Image: /uploads/evan-hafer-net-worth-bio-and-details.webp
 categories:
   - Businessperson
@@ -76,6 +76,8 @@ Evan was born in 1977 and he is 46 years old.
 
 Evan spent his childhood in Northern Idaho. His parents encouraged him to hike in the mountains near their home along with his brother and sisters.He was a shy child; he remembered when he was six years old, he would play board games with his whole family even though he couldn’t read.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/bob-dole-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Bob Dole</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/fLq74WsOsTQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Evan Hafer Education:**
@@ -99,6 +101,8 @@ Evan earns approximately $50,000 plus per month.
 ## **Evan Hafer Height:**
 
 Evan is 5 feet 6 inches(1.7 m) and weighs 169 Lbs(77 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/andrew-schulz-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Andrew Schulz</a>**
 
 ![Evan Hafer Net Worth And Biography](/uploads/evan-hafer-net-worth-.webp)
 
@@ -124,3 +128,5 @@ Yes, Evan Haffer is married.
 * Evan Hafer is desirous about the outdoors. In January, 2021, he was appointed by the Board of Directors in the Congressional Sportsmen’s Foundation.
 * He loves mountains instead of the ocean.
 * Whenever he is free, he loves to do some maths and go through calculations.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

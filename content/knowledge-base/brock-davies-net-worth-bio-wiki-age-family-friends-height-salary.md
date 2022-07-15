@@ -11,7 +11,7 @@ meta_Keywords: Brock Davies Net Worth
 url: brock-davies-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-05-17T11:23:37.584Z
-updateDate: 2022-05-17T11:23:36.818Z
+updateDate: 2022-07-15T05:49:52.400Z
 featured_Image: /uploads/brock-davies-net-worth-bio-and-details.webp
 categories:
   - Sports
@@ -80,6 +80,8 @@ Brock Davies was born on June 16th, 1991 and he is 32 years old.
 
 Brock Davies was born and raised in Australia. He played rugby union professionally for various clubs in Australia and England. Brock Davies has a degree in Exercise & Sports Science from the University of Wollongong. He currently works as a strength & conditioning coach.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/tatu-baby-net-worth-bio-age-family-friends-height-salary/" target="_blank" rel="noopener">Tatu Baby</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/6UluwHhSXrs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe> 
 
 ## **Brock Davies Education:**
@@ -106,6 +108,8 @@ Brock is said to earn more than $10,000 per episode.
 
 Brock Davies is 1.91 m tall and weighs 102 kg.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/salice-rose-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Salice Rose</a>**
+
 ![Brock Davies Net Worth Biography](/uploads/brock-davies-net-worth-.webp)
 
 ## **Is Brock Davies Relationship Status Single/Married?**
@@ -127,3 +131,5 @@ Brock Davies has represented Australia in Sevens rugby. He was also a member of 
 * He currently works as a strength & conditioning coach.
 * Brock Davies has represented Australia in Sevens rugby. 
 * He was also a member of the Waratahs U20s side that won the Super 20s championship in 2010.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

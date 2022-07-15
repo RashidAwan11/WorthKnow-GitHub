@@ -12,7 +12,7 @@ meta_Keywords: Tank Abbott Net Worth
 url: tank-abbott-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-05-31T06:57:06.657Z
-updateDate: 2022-05-31T06:57:05.733Z
+updateDate: 2022-07-15T04:46:45.978Z
 featured_Image: /uploads/tank-abbott-net-worth-bio-and-details.webp
 categories:
   - Sports
@@ -79,6 +79,8 @@ Tank Abbott was born on April 26, 1965, and is 57 years old.
 
 Abbott was born in Huntington Beach, California. His mother worked as a cocktail waitress and his father was a building contractor. He has three sisters. When he was young, his family moved to Atlanta, Georgia, where he attended middle school and high school. After graduation, he joined the United States Marine Corps and served for four years.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/dee-wallace-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Dee Wallace</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/i_Kw89Y9tWk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Tank Abbott Education:**
@@ -105,6 +107,8 @@ Abbott's salary is $300,000.
 
 Abbott is 6 feet 0 inches tall and weighs 260 pounds.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/gavin-mcinnes-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Gavin Mcinnes</a>**
+
 ![Tank Abbott Net Worth Biography](/uploads/tank-abbott-net-worth-.webp)
 
 ## **Is Tank Abbott's Relationship Status Single/Married?**
@@ -126,3 +130,5 @@ Some of Abbott's accomplishments include being a former UFC Heavyweight Champion
 * He has a record of 10-15 in MMA.
 * He has a record of 1-1 in boxing.
 * His nickname is "The Tank."
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

@@ -13,7 +13,7 @@ meta_Keywords: Michael Moorer Net Worth
 url: michael-moorer-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-04-18T08:32:51.605Z
-updateDate: 2022-04-18T08:32:50.200Z
+updateDate: 2022-07-15T10:39:02.063Z
 featured_Image: /uploads/michael-moorer-net-worth-bio-and-details.webp
 categories:
   - Sports
@@ -80,6 +80,8 @@ Born in Moncks Corner, South Carolina and raised in Detroit, Michigan, Michael M
 
 Michael turned professional at the age of 20 and won his first 27 fights before losing a unanimous decision to future heavyweight champion Riddick Bowe in 1991. After winning two more fights, Moorer moved up to the light heavyweight division and lost his first fight in that weight class to future world champion Virgil Hill.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/nayib-bukele-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Nayib Bukele</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/6UMwARucDHc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Michael Moorer Education:**
@@ -112,6 +114,8 @@ South Carolina, the USA.
 
 Michael Moorer is 6'4" (1.93 m) tall and weighed between 210-225 pounds during his boxing career.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/mac-demarco-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Mac Demarco</a>**
+
 ## **Is Michael Moorer Relationship Status Single/Married?**
 
 Michael Moorer is married to his wife, Toni Ann. They have two daughters together.
@@ -133,3 +137,5 @@ Became the first left-handed heavyweight champion in boxing history.
 * Michael Moorer has fought and beaten some of the biggest names in boxing, including George Foreman, Evander Holyfield, and Lennox Lewis.
 * Michael Moorer is one of only four men to have held both the WBA and IBF heavyweight titles.
 * Michael Moorer was inducted into the International Boxing Hall of Fame in 2016.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

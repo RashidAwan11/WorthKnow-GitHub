@@ -13,7 +13,7 @@ meta_Keywords: Carl Crawford Net Worth
 url: carl-crawford-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-05-31T08:58:04.261Z
-updateDate: 2022-05-31T08:58:03.524Z
+updateDate: 2022-07-15T04:40:40.325Z
 featured_Image: /uploads/carl-crawford-net-worth-bio-and-details.webp
 categories:
   - Sports
@@ -79,6 +79,8 @@ Carl Crawford was born on August 5, 1981, and he is 40 years old.
 
 Crawford was born in Houston, Texas. He attended Jefferson Davis High School in Houston, where he played baseball and basketball. Crawford was drafted by the Tampa Bay Devil Rays in the second round of the 1999 Major League Baseball draft.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/rod-wave-net-worth-bio-age-family-friends-height-salary/" target="_blank" rel="noopener">Rod Wave</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/-kToMISJG04" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Carl Crawford Education:**
@@ -103,6 +105,8 @@ Carl Crawford's salary was $21.8 million in 2017.
 
 Carl Crawford is 6 feet 2 inches tall and weighs 185 pounds.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/sabrina-peterson-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Sabrina Peterson</a>**
+
 ![Carl Crawford Net Worth Biography](/uploads/carl-crawford-net-worth.webp)
 
 ## **Is Carl Crawford's Relationship Status Single/Married?**
@@ -125,3 +129,5 @@ Carl Crawford is married to his wife Jillian Rose Reed. They have two children t
 * Crawford was drafted by the Tampa Bay Devil Rays in the second round of the 1999 Major League Baseball draft.
 * Crawford made his Major League debut with the Tampa Bay Devil Rays in 2002.
 * He played for the Devil Rays until 2008 when he was traded to the Boston Red Sox.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

@@ -13,7 +13,7 @@ meta_Keywords: Majah Hype Net Worth
 url: majah-hype-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-04-08T08:11:47.976Z
-updateDate: 2022-04-08T08:11:47.288Z
+updateDate: 2022-07-15T14:44:28.752Z
 featured_Image: /uploads/majah-hype-net-worth-bio-and-details.webp
 categories:
   - Actors
@@ -80,6 +80,8 @@ Majah was born in Brooklyn, New York, as Nigel Joseph in the Caribbean, Majah gr
 
 Also, the rich and famous comedian immigrated to the US at 12 and lived in Baltimore. That was the time when the family stayed before moving to Brooklyn, NY. There Majah worked as a former artist and DJ with the New York City sound system Massive B.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/bandman-kevo-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Bandman Kevo</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/kzg-wD2qXJg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Majah Hype Education:**
@@ -104,6 +106,8 @@ Majah Hype earns approximately $50,000 plus per month.
 
 Majah is 5 feet (152 cm) and weighs 178 Lbs(81 kg).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/tom-kenny-net-worth-bio-age-family-friends-height-salary/" target="_blank" rel="noopener">Tom Kenny</a>**
+
 ![Majah Hype Net Worth And Biography](/uploads/majah-hype-net-worth-.webp)
 
 ## **Is Majah Hype Relationship Status Single/Married?**
@@ -124,3 +128,5 @@ Majah is a very famous comedian. He has earned a lot of money through his youtub
 * Majah is a very famous comedian and actor.
 * He has a huge fan following on Youtube.
 * He earned his wealth through his comedy career.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

@@ -13,7 +13,7 @@ meta_Keywords: Lil Cease Net Worth
 url: lil-cease-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-05-29T17:34:24.426Z
-updateDate: 2022-05-29T17:34:23.588Z
+updateDate: 2022-07-15T05:12:25.592Z
 featured_Image: /uploads/lil-cease-net-worth-bio-and-details.webp
 categories:
   - Actors
@@ -80,6 +80,8 @@ Lil Cease was born on August 20, 1977, and he is 44 years old.
 
 Cease grew up in Brooklyn, New York. He was raised in the Marcy Houses, a housing project in the Bedford-Stuyvesant neighborhood of Brooklyn. His father abandoned the family when he was four years old, leaving his mother to raise him and his two sisters.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/courtney-hadwin-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Courtney Hadwin</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/bNPluwt5kNg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Lil Cease Education:**
@@ -108,6 +110,8 @@ Cease's salary is not known.
 
 Cease is 5 feet 8 inches (1.73 meters) tall and his weight is not known.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/eli-tomac-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Eli Tomac</a>**
+
 ![Lil Cease Net Worth Biography](/uploads/lil-cease-net-worth-.webp)
 
 ## **Is Lil Cease Relationship Status Single/Married?**
@@ -130,3 +134,5 @@ Cease has won two BET Awards, for Best New Artist and Best Rap Duo/Group, both o
 * Cease's cousin, Damian "Blue" Smith, was a member of the rap group Mobb Deep. 
 * In 2000, Cease was shot in the eye during a drive-by shooting in Brooklyn. The bullet remains lodged in his head and he has partial vision in that eye.
 * In 2001, Cease's sister, Tiffany Lane, was shot and killed in Brooklyn.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

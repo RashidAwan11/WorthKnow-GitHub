@@ -12,7 +12,7 @@ meta_Keywords: Philip Defranco Net Worth
 url: philip-defranco-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-04-18T07:18:06.264Z
-updateDate: 2022-04-18T07:18:07.644Z
+updateDate: 2022-07-15T10:45:12.114Z
 featured_Image: /uploads/philip-defranco-net-worth-bio-and-details.webp
 categories:
   - YouTuber
@@ -77,7 +77,9 @@ Philip was born December 1, 1985 and he is 36 years old
 
 ## **Philip Defranco Personal life/Biography:**
 
-Not much is known about his personal life as he likes to keep it separate from his online persona. However, it is known that he has an Italian-American background and was born in The Bronx, New York. He now resides in Los Angeles, California. 
+Not much is known about his personal life as he likes to keep it separate from his online persona. However, it is known that he has an Italian-American background and was born in The Bronx, New York. He now resides in Los Angeles, California.
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/andy-dick-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Andy Dick</a>**
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/0N8fXbFWb_Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
@@ -121,6 +123,8 @@ DeFranco lives in Encino, Los Angeles
 
 He is approximately 6 feet tall and weight is unknown.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/teri-garr-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Teri Garr</a>**
+
 ## **Is Philip Defranco Relationship Status Single/Married?**
 
 No one really knows as he likes to keep his personal life separate from his online persona.
@@ -150,3 +154,5 @@ He is approximately 6 feet tall.
 His YouTube channel has over 6.76 million subscribers and 1.8 billion views. 
 
 He was named one of the most influential people in the world by Time magazine in 2017.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

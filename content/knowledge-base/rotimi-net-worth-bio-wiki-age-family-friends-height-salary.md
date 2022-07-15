@@ -12,7 +12,7 @@ meta_Keywords: Rotimi Net Worth
 url: rotimi-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-04-08T08:01:51.564Z
-updateDate: 2022-04-08T08:01:50.695Z
+updateDate: 2022-07-15T14:45:37.332Z
 featured_Image: /uploads/rotimi-net-worth-bio-and-details.webp
 categories:
   - Singer
@@ -79,6 +79,8 @@ Rotimi was born in Maplewood, New Jersey, to Nigerian parents; his father was a 
 
 He continued his studies at Northwestern University and graduated with a bachelor’s degree in Communications with a young child in business in 2010.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/naturi-naughton-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Naturi Naughton</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/fOQEZoMr56g" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Rotimi Education:**
@@ -105,6 +107,8 @@ Rotimi earns approximately $32000 per month.
 
 Rotimi is 5 feet 10 inches(1.78 m) and weighs 154 Lbs(70 kg).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/carlos-vives-net-worth-bio-age-family-friends-height-salary/" target="_blank" rel="noopener">Carlos Vives</a>**
+
 ![Rotimi Net Worth And Biography](/uploads/rotimi-net-worth-.webp)
 
 ## **Is Rotimi Relationship Status Single/Married?**
@@ -118,8 +122,8 @@ The “ambitious, darkly humorous” story of a Nigerian soldier fighting in Bur
 ## **Rotimi Social Media:**
 
 * Twitter account is with the user name of <a href="https://twitter.com/Rotimi" target="_blank" rel="nofollow" rel="noopener">@Rotimi</a>
-*  Instagram account is with the user name of <a href="https://www.instagram.com/rotimi/channel/" target="_blank" rel="nofollow" rel="noopener">@Rotimi</a>
-*  Facebook account is with the user name of <a href="https://www.facebook.com/rotimimusic/" target="_blank" rel="nofollow" rel="noopener">@Rotimi</a>
+* Instagram account is with the user name of <a href="https://www.instagram.com/rotimi/channel/" target="_blank" rel="nofollow" rel="noopener">@Rotimi</a>
+* Facebook account is with the user name of <a href="https://www.facebook.com/rotimimusic/" target="_blank" rel="nofollow" rel="noopener">@Rotimi</a>
 
 ## **Rotimi Hobbies:**
 
@@ -127,3 +131,5 @@ The “ambitious, darkly humorous” story of a Nigerian soldier fighting in Bur
 * Mastering my craft.
 * Driving.
 * Listening stories.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

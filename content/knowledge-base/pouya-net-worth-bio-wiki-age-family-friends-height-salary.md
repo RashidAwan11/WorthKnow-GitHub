@@ -12,7 +12,7 @@ meta_Keywords: Pouya Net Worth
 url: pouya-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-04-18T09:15:54.155Z
-updateDate: 2022-04-18T09:15:53.469Z
+updateDate: 2022-07-15T10:35:01.419Z
 featured_Image: /uploads/pouya-net-worth-bio-and-details.webp
 categories:
   - Rapper
@@ -80,6 +80,8 @@ Pouya was born on December 20, 1994, and he is 27 years old.
 
 Pouya was born in Miami, Florida. He is of Iranian descent. Pouya's mother died when he was just four years old, and his father was killed when Pouya was sixteen. As a result, Pouya was raised by his older sister.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/d-smoke-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">D Smoke</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/Tt0wTicwgro" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Pouya Education:**
@@ -104,6 +106,8 @@ Pouya's exact salary is unknown, but it is estimated that he earns between $10,0
 
 Pouya is 6 feet 1 inch (1.85 meters) tall and weighs approximately 160 pounds (73 kg).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/raymond-santana-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Raymond Santana</a>**
+
 ## **Is Pouya Relationship Status Single/Married?**
 
 Pouya is currently single. He has been in a number of relationships with high-profile women, including model Madison Skylar and social media personality Lenarr Young. 
@@ -127,3 +131,5 @@ Pouya has won several awards for his music, including the Miami Music Award for 
 * Pouya began his music career in 2010, when he and his childhood friend, rapper Fat Nick, formed the rap duo Buffet Boys.
 * Pouya's exact salary is unknown, but it is estimated that he earns between $10,000 and $20,000 per month from album sales and touring.
 * Pouya is 6 feet 1 inch (1.85 meters) tall and weighs approximately 160 pounds (73 kg).
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

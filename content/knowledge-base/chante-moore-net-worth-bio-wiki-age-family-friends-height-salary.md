@@ -13,7 +13,7 @@ meta_Keywords: Chante Moore Net Worth
 url: chante-moore-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-05-17T11:26:56.927Z
-updateDate: 2022-05-17T11:26:56.251Z
+updateDate: 2022-07-15T05:40:50.893Z
 featured_Image: /uploads/chante-moore-net-worth-bio-and-details.webp
 categories:
   - Author
@@ -80,6 +80,8 @@ Chante Moore was born on February 17, 1967, and she is 55 years old.
 
 Chante Moore was born in San Francisco, California, and she is the daughter of Tommie and Louis Moore. She has two brothers and three sisters. Moore began her career as a backing vocalist for artists such as Bobby Womack and Anita Baker. In 1989, Moore signed a recording contract with MCA Records.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/sisqo-net-worth-bio-age-family-friends-height-salary/" target="_blank" rel="noopener">Sisqo</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/Eg0-Yv4slFU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Chante Moore Education:**
@@ -106,6 +108,8 @@ Chante Moore earns a salary of $30,000 per month.
 
 Chante Moore is 5 feet 3 inches tall and weighs 130 pounds.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/stunna-4-vegas-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Stunna 4 Vegas</a>**
+
 ![Chante Moore Net Worth Biography](/uploads/chante-moore-net-worth-.webp)
 
 ## **Is Chante Moore Relationship Status Single/Married?**
@@ -128,3 +132,5 @@ Chante Moore has won four NAACP Image Awards and three Soul Train Music Awards.
 * Chante Moore's favorite food is sushi.
 * Chante Moore's favorite song is "A Love Supreme" by John Coltrane.
 * Chante Moore's favorite movie is The Wizard of Oz.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

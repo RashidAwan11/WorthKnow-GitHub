@@ -10,7 +10,7 @@ meta_Keywords: Todd Bridges Net Worth
 url: todd-bridges-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-21T06:55:41.899Z
-updateDate: 2022-03-21T07:08:09.134Z
+updateDate: 2022-07-15T05:34:31.996Z
 featured_Image: /uploads/todd-bridges-net-worth-bio-and-details.webp
 categories:
   - Actors
@@ -75,6 +75,8 @@ Todd Bridges was born on 27 May 1965 and he is 56 years old.
 
 Тоdd Вrіdgеѕ wаѕ bоrn іn thе уеаr 1965 tо Веttу Аlісе Рrуоr аnd Јаmеѕ Вrіdgеѕ, Ѕr. Ніѕ birth рlасе іѕ Ѕаn Frаnсіѕсо, located in Саlіfоrnіа. Ніѕ mоthеr іѕ аn асtrеѕѕ, mаnаgеr, аnd dіrесtоr, whеrеаѕ hіѕ fаthеr іѕ а talent agent. Ніѕ brоthеr named Јіmmу Вrіdgеѕ, nіесеѕ nаmеlу Вrооkе Вrіdgеѕ, Реnnу Вrіdgеѕ, аnd Rасhеl Вrіdgеѕ, аnd а ѕіѕtеr nаmеd Vеrdа Вrіdgеѕ, аrе аll асtоrѕ.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/steve-harvey-family-net-worth-bio-age-family-height-house-home-address-phone-number-email/" target="_blank" rel="noopener">Steve Harvey</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/7I8UAwB6wpE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Todd Bridges Education:**
@@ -100,6 +102,8 @@ Todd Bridges earns approximately $100,000 a month.
 ## **Todd Bridges Height:**
 
 Tod height is 5 feet 10 inches(180cm) and weighs 171 Lbs(78 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/leticia-bufoni-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Leticia Bufoni</a>**
 
 ![Todd Bridges Net Worth And Biography](/uploads/todd-bridges-net-worth-bio-and-details-1-.webp)
 
@@ -128,3 +132,5 @@ Todd Bridges Hobbies:
 * Todd’s first job was a Jell-O commercial, which starred the entire Bridges family. 
 * He later accomplished over 60 national commercials. 
 * Todd was the first black child actor to become a recurring regular on the hit series, The Waltons (1972), and Little House on the Prairie (1974) with the late great Michael Landon.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

@@ -13,7 +13,7 @@ meta_Keywords: William Perry Net Worth
 url: william-perry-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-05-16T09:26:55.062Z
-updateDate: 2022-05-16T09:26:54.419Z
+updateDate: 2022-07-15T10:03:14.887Z
 featured_Image: /uploads/william-perry-net-worth-bio-and-details.webp
 categories:
   - Businessperson
@@ -76,11 +76,13 @@ Perry was the 19th United States secretary of defense, serving from February 199
 
 Perry was born on December 16, 1962 and he is 59 years old.
 
-## **William Perry Personal life/Biography:** 
+## **William Perry Personal life/Biography:**
 
 Perry was born in Iowa and he has three siblings. His father passed away when he was four years old, and his mother remarried soon afterward. Perry's stepfather was abusive, and his mother eventually divorced him. Perry attended Stanford University, where he studied mathematics and science.
 
 He later earned a master's degree in business from Stanford. Perry is married to Linda Perry, and the couple has two children.
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/rick-shiels-net-worth-bio-age-family-friends-height-salary/" target="_blank" rel="noopener">Rick Shiels</a>**
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/E_jidra8EMU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
@@ -106,6 +108,8 @@ Perry earns approximately $32k per month.
 
 Perry is 6 feet tall and weighs 165lbs.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/jeanette-lee-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Jeanette Lee</a>**
+
 ![William Perry Net Worth Biography](/uploads/william-perry-net-worth.webp)
 
 ## **Is William Perry's Relationship Status Single/Married?**
@@ -129,3 +133,5 @@ Perry served as the secretary of defense from 1994 to 1997. He is currently a pr
 * Perry is currently a professor at Stanford University and the chairman of the Perry Group, a consulting firm.
 * He has also worked as a senior fellow at the Hoover Institution. 
 * Perry is married to Linda Perry and the couple has two children.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

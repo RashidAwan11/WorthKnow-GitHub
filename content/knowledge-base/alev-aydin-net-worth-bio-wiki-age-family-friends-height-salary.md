@@ -13,7 +13,7 @@ meta_Keywords: Alev Aydin Net Worth
 url: alev-aydin-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-06-01T09:28:42.105Z
-updateDate: 2022-06-01T09:28:41.607Z
+updateDate: 2022-07-15T04:31:54.691Z
 featured_Image: /uploads/alev-aydin-net-worth-bio-and-details.webp
 categories:
   - Actors

@@ -13,7 +13,7 @@ meta_Keywords: Mrs Doubtfire Net Worth
 url: mrs-doubtfire-family-net-worth-bio-age-family-height-house-home-address-phone-number-email
 author: Nicholas Samantha
 date: 2022-04-15T09:51:26.526Z
-updateDate: 2022-04-15T09:51:25.768Z
+updateDate: 2022-07-15T13:47:41.445Z
 featured_Image: /uploads/mrs-doubtfire-net-worth-bio-and-details.webp
 categories:
   - Singer
@@ -132,6 +132,8 @@ MRS Doubtfire was born on September 24, 1951.
 
 Doubtfire was born in San Francisco, California, to George and Louise Doubtfire. He had two older sisters, Betty and Janet. His father was Scottish-American and his mother was of Irish descent. As a child, he wanted to be an actor, but his parents discouraged him from pursuing it because they did not want their children to end up like them.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/trevor-moore-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Trevor Moore</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/2l3rL5fnz2I" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **MRS Doubtfire Education**
@@ -158,6 +160,8 @@ Doubtfire earns a salary of $100,000 per month.
 
 Doubtfire is 6 feet 2 inches tall and weighs approximately 210 pounds.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/iann-dior-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Iann Dior</a>**
+
 ## **Is MRS Doubtfire Relationship Status Single/Married?**
 
 Doubtfire is married to his wife, Jane, and they have three children together.
@@ -181,3 +185,5 @@ He has also been nominated for two Academy Awards, winning one for Best Makeup f
 * Doubtfire is a fan of the San Francisco Giants and the Golden State Warriors.
 * Doubtfire's favorite food is Chinese food.
 * Doubtfire's favorite movie is The Shawshank Redemption (1994).
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

@@ -12,7 +12,7 @@ meta_Keywords: Daniel Mac Net Worth
 url: daniel-mac-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-05-16T08:38:26.692Z
-updateDate: 2022-05-16T08:38:26.129Z
+updateDate: 2022-07-15T10:06:27.984Z
 featured_Image: /uploads/daniel-mac-net-worth-bio-and-details.webp
 categories:
   - Actors
@@ -79,6 +79,8 @@ Mac was born on October 8, 1997, and he is 24 years old.
 
 Mac was born and raised in Canada. He has two older sisters. His father is of Scottish descent and his mother is of Vietnamese descent. He began his TikTok channel in July 2019. He went viral in early 2020 after asking luxury auto owners and celebrities for tickets to the Toronto Raptors NBA games.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/jennifer-todryk-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Jennifer Todryk</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/42D_yXVlmuU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Daniel Mac Education:**
@@ -101,6 +103,8 @@ Mac's salary is estimated to be $10,000 per month.
 
 Mac is 6 feet 0 inches tall and weighs approximately 160 pounds.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/dream-doll-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Dream Doll</a>**
+
 ![Daniel Mac Net Worth Biography](/uploads/daniel-mac-net-worth.webp)
 
 ## **Is Daniel Mac Relationship Status Single/Married?**
@@ -121,3 +125,5 @@ Mac has amassed over 4 million followers on TikTok. He is also the creator of th
 * He began his TikTok channel in July 2019.
 * He went viral in early 2020 after asking luxury auto owners and celebrities for tickets to the Toronto Raptors NBA games.
 * Mac studied business at Ryerson University in Toronto but did not finish his degree.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

@@ -11,7 +11,7 @@ meta_Keywords: Bobby Lytes Net Worth
 url: bobby-lytes-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-04-18T10:13:19.512Z
-updateDate: 2022-04-18T10:13:18.174Z
+updateDate: 2022-07-15T10:22:40.323Z
 featured_Image: /uploads/bobby-lytes-net-worth-bio-and-details.webp
 categories:
   - Rapper
@@ -80,6 +80,8 @@ He was born and raised in Miami, Florida to Haitian immigrants. As a child, he l
 
 He started posting videos of himself rapping on YouTube, which led to him being discovered by Polow da Don. He was then signed to Atlantic Records in 2017. Lytes released his first single, "Drip" on March 2, 2018. The song received positive reviews from critics and peaked at number 19 on the US Rap charts. He is currently working on his debut album, which is set to be released in 2019.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/alisha-marie-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Alisha Marie</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/XjVuNaFcEEc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Bobby Lytes Education:**
@@ -101,6 +103,8 @@ He earns a salary of $20,000 per month.
 ## **Bobby Lytes Height:**
 
 He is 5 feet 8 inches (1.73 m) tall and weighs around 68 kg or 149 lbs.
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/irene-ryan-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Irene Ryan</a>**
 
 ## **Is Bobby Lytes Relationship Status Single/Married?**
 
@@ -126,3 +130,5 @@ He was nominated for the BET Hip Hop Award for Best Breakthrough Artist in 2018.
 * He is the first Haitian-American rapper to be signed to a major label.
 * Bobby Lytes has an estimated net worth of $3 million dollars as of 2019.
 * He was nominated for the BET Hip Hop Award for Best Breakthrough Artist in 2018.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

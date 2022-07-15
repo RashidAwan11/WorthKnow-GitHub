@@ -11,7 +11,7 @@ meta_Keywords: Darlene Ortiz Net Worth
 url: darlene-ortiz-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-04-05T09:12:24.032Z
-updateDate: 2022-04-05T09:12:22.909Z
+updateDate: 2022-07-15T15:03:21.182Z
 featured_Image: /uploads/darlene-ortiz-net-worth-bio-and-details.png
 categories:
   - Celebrity
@@ -76,6 +76,8 @@ Darlene Ortiz was born in 1967 and she is 54 years old.
 
 Darlene Ortiz is an American celebrity widely known for being the second girlfriend of Ice-T. A rapper, actor, composer, and producer from the United States.There is no more information about the life of Darlene Ortiz.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/cameron-hanes-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Cameron Hanes</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/XeSIiYI6JwI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ##  **Darlene Ortiz Education:**
@@ -99,6 +101,8 @@ Darlene earns approximately $60,000 per month.
 ## **Darlene Ortiz Height:**
 
 Darlene is 5 feet 7 inches(1.76 m) and weighs 165 Lbs(75 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/joe-giudice-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Joe Giudice</a>**
 
 ![Darlene Ortiz Net Worth And Biography](/uploads/darlene-ortiz-net-worth.png)
 
@@ -128,3 +132,5 @@ Darlene Ortiz is a famous personality but has not won any award yet.
 * She is widely known as the first cover girl of rap. 
 * Oritz's poses for such seminal Ice T albums as Rhyme Pays and Power made her a Hip Hop icon. 
 * Darlene also starred in multiple music videos.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

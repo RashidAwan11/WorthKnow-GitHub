@@ -105,6 +105,8 @@ Eric B's salary is estimated to be $1 million per year. He earns his income from
 
 Eric B is 6 feet tall and weighs approximately 200 pounds.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/nayib-bukele-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Nayib Bukele</a>**
+
 ![Eric B Net Worth Biography](/uploads/eric-b-net-worth.webp)
 
 ## **Is Eric B Relationship Status Single/Married?**
@@ -126,3 +128,5 @@ Eric B is a successful rapper, producer, and DJ. He has achieved critical and co
 * Eric B is 6 feet tall and weighs approximately 200 pounds.
 * Eric B's net worth is estimated to be $10 million.
 * Eric B's salary is estimated to be $1 million per.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

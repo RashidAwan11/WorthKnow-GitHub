@@ -12,7 +12,7 @@ meta_Keywords: Fouseytube Net Worth
 url: fouseytube-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-05-27T11:49:35.846Z
-updateDate: 2022-05-27T11:49:35.230Z
+updateDate: 2022-07-15T05:33:38.868Z
 featured_Image: /uploads/fouseytube-net-worth-bio-and-details.webp
 categories:
   - Actors
@@ -79,6 +79,8 @@ Fouseytube was born on January 22, 1990, and he is 32 years old.
 
 Erakat was born and raised in Sacramento, California, to Palestinian parents. His father worked as a delivery truck driver for a Mediterranean food company; his mother was a stay-at-home mom. He has four sisters and one brother. Erakat graduated from Del Campo High School in Fair Oaks, California, in 2008.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/lil-flip-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Lil Flip</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/bYbskxgeWHw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Fouseytube Education:**
@@ -102,6 +104,8 @@ His annual salary is unknown but it is estimated to be around $1 million per yea
 ## **Fouseytube Height:**
 
 He is 5 feet 10 inches (1.78 m) tall and weighs approximately 160 pounds (73 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/tori-kelly-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Tori Kelly</a>**
 
 ![Fouseytube Net Worth Biography](/uploads/fouseytube-net-worth-.webp)
 
@@ -129,3 +133,5 @@ Erakat has also won a Streamy Award and a Teen Choice Award.
 * He studied communications and business at the University of California, Riverside.
 * Erakat is a former member of the YouTube group OckTV.
 * He has collaborated with other YouTubers, including Roman Atwood, Vitaly Zdorovetskiy, and h3h3Productions.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

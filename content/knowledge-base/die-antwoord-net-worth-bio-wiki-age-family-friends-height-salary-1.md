@@ -14,7 +14,7 @@ meta_Keywords: Die Antwoord net worth
 url: die-antwoord-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-03T04:46:05.690Z
-updateDate: 2022-03-03T04:46:05.732Z
+updateDate: 2022-07-16T17:54:10.042Z
 featured_Image: /uploads/die-antwoord-net-worth-bio-wiki-age-family-friends-height-salary.webp
 categories:
   - Rapper
@@ -79,6 +79,8 @@ In Die Antword group Yolandi Visser was born 1st december 1984(37 years old) and
 
 As professional musicians, they make a lot of money from the music they produce. They have about thirteen (13) songs that they recommend and "House of Zef" is the latest. The two make money through their music sales, album sales, tours, concerts, sponsorship agreements, ambassador agreements, YouTube broadcasts and other undisclosed sources.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/sheila-e-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Sheila E</a>**
+
 ## Die Antwoord Education:
 
 They were both adopted children of the church pastor and his wife. At the age of five, she attended the girls' school known as St. Dominic's Catholic School. He continued his education at the Lady Gray Arts Academy.
@@ -103,6 +105,8 @@ Die Antwoord earns $10 thousand per month.
 
 In Die Antwoord Yolandi  Visser height is 5feet 11inches (1.56m) and 99 Ibs (45kg). Ninja height is 6 feet 1 inches (187 cm) tall and weight 176 Ibs(80kg).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/junior-h-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Junior H</a>**
+
 ## Is Die Antwoord Relationship Status Single/Married?
 
 In early 2017, Die Antwoord announced on social media that they would be releasing their latest album, titled The Book of Zef, in September 2017 and they were immediately dispersed shortly thereafter. The band later revealed that the name was changed to "27".
@@ -125,3 +129,5 @@ In early 2017, Die Antwoord announced on social media that they would be releasi
 * They Have A Daughter Called Sixteen
 * They Both Starred In ‘chappie’
 * Their Image Comes From The South African Culture ‘zef’
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

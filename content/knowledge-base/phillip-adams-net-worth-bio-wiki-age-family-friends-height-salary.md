@@ -11,7 +11,7 @@ meta_Keywords: Phillip Adams Net Worth
 url: phillip-adams-net-worth-bio-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-09T09:41:13.785Z
-updateDate: 2022-03-09T09:41:13.803Z
+updateDate: 2022-07-16T17:22:36.956Z
 featured_Image: /uploads/phillip-adams-net-worth-bio-and-details.jpeg
 categories:
   - American Football Player
@@ -78,6 +78,8 @@ Phillip Adams was born on 20 July 1988 and he was 32 years old.
 
 Phillip Adams was an American footballer who represented various clubs in the NFL. He was born in South Carolina and graduated from Rock Hill High School. He played as a defender in the National Soccer League and retired in 2015 after playing for the Atlanta Falcons season. On April 7, 2021, it was reported by the York County Sheriff's office that Adams killed six people and then shot himself. The next day he clashed with the Police. He committed suicide at the age of 32.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/rae-dunn-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Rae Dunn</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/6cE50syJf18" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## Phillip Adams Education:
@@ -101,6 +103,8 @@ Phillip Adams earns approximately $500 k per month.
 ## Phillip Adams Height:
 
 Phillip Adams' height was 5 feet 9 inches(1.80 m) and weighed 194 Lbs(88 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/kliff-kingsbury-family-net-worth-bio-age-family-height-house-home-address-phone-number-email/" target="_blank" rel="noopener">Kliff Kingsbury</a>**
 
 ![Phillip Adams Net Worth And Biography](/uploads/phillip-adams-net-worth.jpeg)
 
@@ -144,3 +148,5 @@ Atlanta Falcons: Adams was signed by the Atlanta Falcons on March 12, 2015, wher
 * In November 2011, the New England Patriots released him. He later joined the Seattle Seahawks where he played one game. 
 * In 2012, he had two concussions over three games. From 2012 to 2013,he played for the Oakland Raiders. 
 * In September 2014, the New York Jets signed him. He appeared in 12 games for the team.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

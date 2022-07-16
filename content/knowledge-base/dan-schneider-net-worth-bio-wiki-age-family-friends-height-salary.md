@@ -14,7 +14,7 @@ meta_Keywords: Dan Schneider Net Worth
 url: dan-schneider-net-worth-bio-age-family-friends-height-salary/
 author: Nicholas Samantha
 date: 2022-02-28T09:05:24.264Z
-updateDate: 2022-02-28T11:09:07.021Z
+updateDate: 2022-07-16T17:57:42.752Z
 featured_Image: /uploads/dan-schneider-net-worth.webp
 categories:
   - Actors
@@ -83,6 +83,8 @@ Dan Schneider was born on 14 January 1966 and he is 56 years old.
 
 Dan Schneider soon moved to Los Angeles to work in acting and writing. He began his professional career as an actor, appearing in supporting or co-starring roles in films such as "Making the Grade", "Better Off Dead", "The Big Picture", and "Happy Together". His first notable role was in the 80s sitcom "Head of the Class" which ran from 1986 to 1991.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/glokknine-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Glokknine</a>**
+
 ## **Dan Schneider Education:**
 
 Dan Schneider attended Harvard University for one semester before returning to Memphis to work on computers.
@@ -104,6 +106,8 @@ Dan Schneider earns $10 thousand per month.
 ## **Dan Schneider Height:**
 
 Dan Schneider's height is 5 feet 11 inches(1.82 meters) and his weight is 128 Ibs(59kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/chante-moore-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Chante Moore</a>**
 
 ![Dan Schneider Net Worth Biography](/uploads/dan-schneider-net-worth-biography.webp)
 
@@ -134,3 +138,5 @@ Face book account is with the user name of <a href="https://www.instagram.com/da
 
 * White one his favorite color.
 * Dan Schneider named his production house, Schneider's Bakery, after his father's business in Memphis, Tennessee. Interestingly, there is a real bakery in Ohio that shares the name of its production company.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

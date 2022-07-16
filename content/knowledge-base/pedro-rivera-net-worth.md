@@ -12,7 +12,7 @@ meta_Keywords: Pedro Rivera Net Worth
 url: pedro-rivera-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-19T15:17:25.288Z
-updateDate: 2022-03-19T15:35:04.048Z
+updateDate: 2022-07-16T16:39:47.173Z
 featured_Image: /uploads/pedro-rivera-net-worth-bio-and-details.webp
 categories:
   - Actors
@@ -77,6 +77,8 @@ Pedro Rivera was born on 23 february 1943 and he is 79 years old.
 
 He was born and raised in La Barca, Mexico and in 1966 moved to the United States where he will live his next life, and his hometown is the United States. Whether he was born into a stable Mexican family. In addition Pedro married twice first Rosa Saavedra (m. 1963-2008), and secondly Juana Ahumada (m. 2019). Pedro Rivera has six children named Pedro Rivera Jr., Rosie Rivera, Jenni Rivera, Juan Rivera, Gustavo Rivera, Lupillo Rivera and has 14 grandchildren including Chiquis Rivera, Jacqie Campos, Johnny Lopez.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/carl-crawford-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Carl Crawford</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/BqUUNbXX7DA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Pedro Rivera Education:**
@@ -107,6 +109,8 @@ Pedro earns approximately $32000 per month.
 
 Pedro is 6 feet(1.83 m) and weighs 176 Lbs(80 kg).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/carl-crawford-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Carl Crawford</a>**
+
 ![Pedro Rivera Net Worth And Biography](/uploads/pedro-rivera-net-worth-.webp)
 
 ## **Is Pedro Rivera Relationship Status Single/Married?**
@@ -136,3 +140,5 @@ Pedro Rivera is an actor, composer, producer, interpreter, and artist manufactur
 * The full name of Pedro Rivera is Pedro Rivera Cervantes.
 * He started his career very initially as a farmer.
 * One of his initial stints was also as a salesman.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

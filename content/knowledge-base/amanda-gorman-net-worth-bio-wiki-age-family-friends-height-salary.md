@@ -14,7 +14,7 @@ meta_Keywords: Amanda Gorman Net Worth
 url: amanda-gorman-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-02-28T06:37:07.664Z
-updateDate: 2022-03-02T08:59:18.186Z
+updateDate: 2022-07-16T18:05:02.432Z
 featured_Image: /uploads/amanda-gorman-net-worth.webp
 categories:
   - Writer
@@ -81,6 +81,8 @@ Amanda was born on 7 March 1998 and she is 23 years old.
 
 Amanda Gorman and his siblings, including his twin sister, Gabrielle, were raised by a single mother, Joan Wicks, a former high school teacher. Both sisters had difficulty speaking. Amanda had a problem with sensory processing that made it difficult for her to pronounce the letter. According to him, he sought poetry as an inexpensive way to express himself.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/alev-aydin-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Alev Aydin</a>**
+
 ## **Amanda Gorman Education:**
 
 Amanda Gorman is a successful writer, activist, and graduate of Harvard University with a major degree in sociology.
@@ -102,6 +104,8 @@ As per record, Amanda Gorman earns $28 Thousand per month.
 ## **Amanda Gorman Height:**
 
 Amanda Gorman Height is 5 feet 5 inches (1.65meters) and weighs 121 lbs (55kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/alex-toussaint-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Alex Toussaint</a>**
 
 ![Amanda Gorman Net Worth Biography](/uploads/amanda-gorman-net-worth-biography.webp)
 
@@ -135,3 +139,5 @@ Amanda Gorman is currently single.
 * She has written two books.
 * She has won several awards from the Scholastic Art & Writing Awards. 
 * She wants to be president one day.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

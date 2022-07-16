@@ -14,7 +14,7 @@ meta_Keywords: Rod Wave Net Worth
 url: rod-wave-net-worth-bio-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-02-21T20:26:38.135Z
-updateDate: 2022-02-28T09:37:45.421Z
+updateDate: 2022-07-16T18:09:55.930Z
 featured_Image: /uploads/rod-wave-net-worth.webp
 categories:
   - Rapper
@@ -83,6 +83,8 @@ Rod Wave was born on August 27, 1999, in St. Petersburg, Pinellas County, Florid
 
 His real name is Rodarious Marcell Green, best known for his role as Rod Wave. He started doing a song within 5th grade that changed when his parents divorced. He attended Lakewood High School, and at the age of 7, his father was released from prison and bought a microphone and laptops. Rod was also arrested on a number of charges of buying stolen property and wearing concealed weapons. At that point, Rod turned around and was able to use these resources to start recording his song number. At first, he started a song that was only humorous, but later his maker forced him to release his songs.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/carl-crawford-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Carl Crawford</a>**
+
 ## **Rod Wave Education:**
 
 Rod Wave a Singer, songwriter, and rapper Rod Wave, is a 2017 graduate from Lakewood High School in St. Petersburg.
@@ -104,6 +106,8 @@ As a Rapper, Rod Wave earns $ 40,000 per month.
 ## **Rod Wave Height:**
 
 Rod wave Height is 5 feet 7 inches (170 cm) and weighs 221 lbs (100kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/dolph-ziggler-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Dolph Ziggler</a>**
 
 ![Rod Wave Net Worth Biography](/uploads/rod-wave-net-worth-biography.webp)
 
@@ -130,3 +134,5 @@ He loves to spend his free time doing different things like playing basketball, 
 * Rod Wave is known for his strong voice and incorporation of R&B and hip-hop. Green rose to fame with the 2019 single "Heart on Ice", which went viral on YouTube and TikTok and peaked at number 25 on the Billboard Hot 100.
 * Green's debut album, Ghetto Gospel, peaked at number 10 on the US Billboard 200. His second album, Pray 4 Love, peaked at number two on the Billboard 200, and included his highest-charting song, "Rags2Riches." His third album, Soulfly, was released on March 26, 2021.
 * In early 2020, Green was involved in a near-fatal car accident causing internal brain bleeding and other injuries. He detailed this on the single "Through the Wire", released in July 2020. Green is currently in a relationship with the mother of his 2 twin daughters, Kelsey H.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

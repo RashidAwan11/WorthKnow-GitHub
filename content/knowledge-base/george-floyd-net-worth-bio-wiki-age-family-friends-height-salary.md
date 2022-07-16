@@ -15,7 +15,7 @@ meta_Keywords: George Floyd Net Worth
 url: george-floyd-net-worth-bio-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-07T04:46:18.394Z
-updateDate: 2022-03-07T04:46:18.420Z
+updateDate: 2022-07-16T17:49:08.763Z
 featured_Image: /uploads/george-floyd-net-worth-bio-wiki-age-family-friends-height-and-salary.jpg
 categories:
   - Rapper
@@ -84,6 +84,8 @@ George Floyd was born on 14th October 1973 and he was 46 years old.
 
 George Perry Floyd Jr. was the oldest of five children, including two daughters (aged 6 and 22 at the time of his death) and an older son. He had two grandchildren. George Perry Floyd was killed by American police and died on May 25, 2020 (at the age of 46) in Minneapolis, Minnesota, United States.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/neera-tanden-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Neera Tanden</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/vksEJR9EPQ8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## George Floyd Education:
@@ -103,6 +105,8 @@ George Floyd has an estimated net worth of $5 Million.
 ## George Floyd Height:
 
 George Floyd Height was 6 feet 6 inches (193 cm), weighing 222 Ibs (101kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/nivea-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Nivea</a>**
 
 ![George Floyd Net Worth And Biography ](/uploads/george-floyd-net-worth.jpg)
 
@@ -132,3 +136,5 @@ George Floyd was an American rapper, truck driver and security guard. He didn't 
 * After he was paroled in 2013, he served as a mentor in his religious community and posted anti-violence videos to social media.
 * In 2014, he moved to the Minneapolis area, living near St. Louis. Louis Park, and worked as a truck driver and truck driver. 
 * In 2020, he lost his job as a truck driver, and then his security career during the COVID-19 violence.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

@@ -12,7 +12,7 @@ meta_Keywords: Shyne Net Worth
 url: shyne-net-worth-bio-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-07T10:36:59.455Z
-updateDate: 2022-03-07T10:36:59.478Z
+updateDate: 2022-07-16T17:38:24.821Z
 featured_Image: /uploads/shyne-net-worth-bio-and-details-.webp
 categories:
   - Rapper
@@ -79,6 +79,8 @@ Shyne and her mother lived in the Brooklyn area of ​​East Flatbush, where th
 
 While serving her prison sentence, Shyne became interested in Judaism, and later realised, practising Orthodox Judaism, officially changing her name to Moses Michael Levi Barrow in 2006. After her release from prison in 2009, he was deported to Belize. He has been appointed as the country's music ambassador for the sustainable development of the Belize music industry and has donated billions of dollars to develop it. Shyne has been elected to the Belizean House of Representatives in the 2020 general election.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/jay-mohr-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Jay Mohr</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/rSsUkuc85vI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## Shyne Education:
@@ -103,6 +105,8 @@ Shyne has a net worth of $32,000 per month.
 
 Shyne is 5 feet 11 inches (1.8m) and weighs 165 Lbs(75 kg).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/maneet-chauhan-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Maneet Chauhan</a>**
+
 ![Shyne Net Worth Biography](/uploads/shyne-net-worth.webp)
 
 ## Is Shyne Relationship Status Single/Married?
@@ -124,3 +128,5 @@ Shyne is a rapper and successful politician.
 * Politician.
 * Rapper.
 * best known for his solo studio albums Shyne (2000) and Godfather Buried Alive (2004).
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

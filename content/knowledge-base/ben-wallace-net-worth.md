@@ -11,7 +11,7 @@ meta_Keywords: Ben Wallace Net Worth
 url: ben-wallace-net-worth-bio-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-11T10:25:14.866Z
-updateDate: 2022-03-11T10:25:14.882Z
+updateDate: 2022-07-16T17:14:11.069Z
 featured_Image: /uploads/ben-wallace-net-worth-bio-and-details-.webp
 categories:
   - Army officer
@@ -81,6 +81,8 @@ Born in White Hall, Alabama, 46-year-old Wallace is the son of Sadie Wallace. In
 
 Veteran Ben Wallace is a family man who married Chanda Wallace in 2001. The married couple have three children together named Bryce Wallace, Ben Wallace Jr. and Bailey Wallace. 
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/chante-moore-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Chante Moore</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/kfduZ8boSyE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Ben Wallace Education:**
@@ -104,6 +106,8 @@ Ben Wallace earns approximately 400,000 per month.
 ## **Ben Wallace Height:**
 
 Ben Wallace height is 8 feet 5 inches(2.6 m) Weight is 240 Lbs(109 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/mark-wahlberg-family-net-worth-bio-age-family-height-house-home-address-phone-number-email/" target="_blank" rel="noopener">Mark Wahlberg</a>**
 
 ![Ben Wallace Net Worth And Biography](/uploads/ben-wallace-net-worth-.webp)
 
@@ -135,3 +139,5 @@ Yes, Ben Wallace is married.
 * In nine seasons with the Pistons (2000–2006; 2009–2012), Wallace made two NBA 
 * Finals appearances (2004 and 2005) and won a championship with the team in 2004. 
 * The Pistons retired his jersey No. 3 in 2016.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

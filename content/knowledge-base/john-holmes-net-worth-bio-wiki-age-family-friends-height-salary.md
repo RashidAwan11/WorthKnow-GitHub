@@ -13,7 +13,7 @@ meta_Keywords: John Holmes Net Worth
 url: john-holmes-net-worth-bio-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-08T05:46:34.675Z
-updateDate: 2022-03-08T05:46:34.704Z
+updateDate: 2022-07-16T17:31:53.773Z
 featured_Image: /uploads/_john-holmes-net-worth-bio-and-details-.webp
 categories:
   - Actors
@@ -90,6 +90,8 @@ Holmes left home at age 15 and enlisted in the United States Army, with his moth
 
 In April 1965, Holmes got a job as a forklift driver in a warehouse near Cudahy. However, frequent exposure to cold air in a large refrigerator after the outside inhaled hot desert air caused him serious health problems, leading to pneumothorax of his right lung three times during the two years he was working there. Sharon also had health problems, as in between. and in the seventeen months of her marriage to Holmes, she had three different miscarriages.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/jay-mcgraw-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Jay Mcgraw</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/1a2BHRFGMgM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## John Holmes Education:
@@ -116,6 +118,8 @@ John Holmes earns approximately $1500 per month.
 
 John Holmes was 6 feet 1 inches(1.88 m) and weighed 166 Lbs(66 kg).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/teairra-mari-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Teairra Mari</a>**
+
 ![John Holmes Net Worth And Biography](/uploads/_john-holmes-net-worth.webp)
 
 ## Is John Holmes Relationship Status Single/Married?
@@ -137,3 +141,5 @@ Holmes achieved notable success as a poet and author during his lifetime. He pub
 * Holmes had a turbulent childhood, between his religious zealot mother and abusive alcoholic stepfather. 
 * Eager to escape the chaos, Holmes left home as a teenager to enlist in the army. 
 * He spent most of the three years of his military service in the Signal Corps in West Germany, until he was honourably discharged.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

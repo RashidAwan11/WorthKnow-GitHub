@@ -12,7 +12,7 @@ meta_Keywords: El Alfa Net Worth
 url: el-lfa-net-worth-bio-age-family-friends-height-salary/
 author: Nicholas Samantha
 date: 2022-02-28T07:00:25.746Z
-updateDate: 2022-02-28T11:10:02.173Z
+updateDate: 2022-07-16T18:03:56.536Z
 featured_Image: /uploads/el-lfa-net-worth.webp
 categories:
   - Rapper
@@ -77,6 +77,8 @@ El Alfa was born on 18 December 1990 and he is 31 years old.
 
 El Alfa has learned that he can no longer share information with his parents and siblings. Growing up, Emmanuel wanted to be a barber, but later he became interested in music. At the age of 17, El Alfa decided to break up with his family so that he could be alone and take his music seriously.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/anne-marie-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Anne Marie</a>**
+
 ## **El Alfa Professional Career:**
 
 El Alfa became famous in early 2010 for the release of his hit songs such as "Tarzan" "Muevete Jevi" and "Coche Bomba". He has collaborated and made friends with many famous artists such as Myke Towers, Nicky Jam, Farruko, among others. Along with these artists, El Alfa has released a few hit songs that have landed a huge hit in the music world. He is one of the top recording and rap artists in the Dominican Republic, with over 18,000,000 monthly listeners on Spotify.
@@ -92,6 +94,8 @@ El Alfa earns $30,000 per month.
 ## **El Alfa Height:**
 
 El Alfa Height is 5 feet 8 inches (176 cm) and weighs 154 lbs (70kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/hannah-meloche-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Hannah Meloche</a>**
 
 ![El Alfa Net Worth Biography](/uploads/el-lfa-net-worth-biography.webp)
 
@@ -124,3 +128,5 @@ After a teenager trying to be a hairdresser, El Alfa became independent at the a
 * His genres are Alternative/Indie, Hip-Hop/Rap
 * His successful albums are Salsa Hecha Con el Corazón, Disciplina
 * His popular songs are Suave2017, Pa Jamaica2018 and Con Silenciador2018
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

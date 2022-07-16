@@ -11,7 +11,7 @@ meta_Keywords: Devale Ellis Net Worth
 url: devale-ellis-net-worth-bio-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-10T07:33:02.729Z
-updateDate: 2022-03-10T07:33:02.762Z
+updateDate: 2022-07-16T17:20:22.348Z
 featured_Image: /uploads/devale-ellis-net-worth-bio-and-details-.webp
 categories:
   - Actors
@@ -83,6 +83,8 @@ Devale Ellis is an American actor and former American football fan. He was signe
 
 He studied at Hofstra University, where he was part of a group of New Orleans Saints that welcomed Marques Colston. Ellis completed his career with 176 touchdowns of 2,207 yards (12.5 touch per point) and 22 touchdowns. As an elder in 2005, he led Hofstra with 74 receptions of 943 yards and five touchdowns. He is ranked second in the Atlantic 10 in reception, third in yards and ninth in all-purpose yards (103.8 yards per game). As a junior, with Colston sidelined all season due to injury, Ellis led the team ranked second in the Atlantic 10 and 11th in the IAA with 74 catches, a fine of 1,067 yards (14.4 average) and 13 touchdowns.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/veronica-perasso-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Veronica Perasso</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/SDPr_oem0Z8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## Devale Ellis Education:
@@ -104,6 +106,8 @@ Devale Ellis earns approximately $32000 per month.
 ## Devale Ellis Height:
 
 Devale Ellis height is 5 feet 10(1.78 m) inches and weight is 174 Lbs(79 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/adam-sandler-family-net-worth-bio-age-family-height-house-home-address-phone-number-email/" target="_blank" rel="noopener">Adam Sandler</a>**
 
 ![Devale Ellis Net Worth And Biography](/uploads/devale-ellis-net-worth.webp)
 
@@ -135,3 +139,5 @@ Speaking of his awards and achievements, he has played several matches for the D
 * There is a prevalent saying by Thomas Foxwell Burton. It goes on to say:
 * “With common talent and exceptional perseverance, all things are possible.”
 * This saying describes Ellis the best. He gave his hand a try in both the things he had potential on. However, he later chose another career, i.e., acting as his prime focus.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

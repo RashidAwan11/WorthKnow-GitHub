@@ -12,7 +12,7 @@ meta_Keywords: Bob Chapek Net Worth
 url: bob-chapek-net-worth-bio-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-10T09:47:27.004Z
-updateDate: 2022-03-10T09:47:27.028Z
+updateDate: 2022-07-16T17:17:19.411Z
 featured_Image: /uploads/bob-chapek-net-worth-bio-and-details-.webp
 categories:
   - Businessperson
@@ -77,6 +77,8 @@ Bob Chapek was born on August 21, 1960 and he is 61 years old.
 
 Robert Chapek was born in Hammond, Indiana to a working mother and father, Marie (Lofay) and Bernard W. Chapek. His father was a World War II veteran. His family went on an annual trip to Walt Disney World. Chapek graduated from George Rogers Clark Jr./Sr. High School in 1977. He holds a Bachelor of Science degree in microbiology from Indiana University Bloomington and a Master of Business Administration from Michigan State University. Chapek worked for H. J. Heinz Company in product management and advertising J. Walter Thompson before joining the Walt Disney Company in 1993.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/brock-davies-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Brock Davies</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/vweDeaFRPQU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## Bob Chapek  Education:
@@ -98,6 +100,8 @@ Bob Chapek earns approximately $2.5 million per month.
 ## Bob Chapek  Height:
 
 Bob Chapek height is 6 feet 2 inches(1.88 m) and weight is 167 Lbs(76 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/charli-damelio-family-net-worth-bio-age-family-height-house-home-address-phone-number-email/" target="_blank" rel="noopener">Charli Damelio</a>**
 
 ![Bob Chapek Net Worth And Biography](/uploads/bob-chapek-net-worth-.webp)
 
@@ -124,3 +128,5 @@ A visionary leader, he has championed using creativity and cutting-edge technolo
 ## Bob Chapek  Facts:
 
 Bob Chapek is Chief Executive Officer of The Walt Disney Company, one of the world's largest media and entertainment companies and home to some of the most respected and beloved brands around the globe, including Disney, Pixar, Marvel, Star Wars, ESPN and National Geographic.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

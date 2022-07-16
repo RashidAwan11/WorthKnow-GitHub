@@ -13,7 +13,7 @@ meta_Keywords: Theo Von Net Worth
 url: theo-von-net-worth-bio-age-family-friends-height-salary/
 author: Nicholas Samantha
 date: 2022-02-28T05:37:56.313Z
-updateDate: 2022-02-28T11:12:56.405Z
+updateDate: 2022-07-16T18:06:47.053Z
 featured_Image: /uploads/theo-von-net-worth.webp
 categories:
   - Actors
@@ -80,7 +80,9 @@ Theo Von was born on 19 March 1980 and he is 41 years old.
 
 Theo Von's parents are Roland Achilles and Gina Capitani. His father was 70 years old when Theo was born. To date, Theo Von has worked in the Hollywood entertainment industry, and his artwork has been released in English-language films. He is the host of the Last Weekend poster with the host of The King and The Sting podcast with fellow comedian Brendan Schaub. Theo has appeared several times in Joe Rogan's podcast, Joe Rogan Experience, regularly in Joey Diaz's The Church of What's Happening Now, and has been voted the guest of the year for The Fighter and The Kid by TFATK listeners both in 2017 and -2018.
 
-## Theo Von Education:
+**Also Read About the Net Worth of: <a href="https://worthknow.com/dan-harris-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Dan Harris</a>**
+
+##  Theo Von Education:
 
 Theo Von graduated from Mandeville High School in Mandeville, Louisiana. He later moved to Louisiana State University for a while. He also studied at Loyola University New Orleans, University of Arizona, College of Charleston, and Santa Monica College. In 2011, Von received his bachelor's degree from the University of New Orleans.
 
@@ -101,6 +103,8 @@ As an actor, Theo Von earns $8,000 plus per month.
 ## **Theo Von Height:**
 
 Theo Von is 5 feet 11 inches (1.55meters) and weighs 158 lbs (72kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/rauw-alejandro-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Rauw Alejandro</a>**
 
 ![Theo Von Net Worth Biography](/uploads/theo-von-net-worth-biography.webp)
 
@@ -133,3 +137,5 @@ Theo Von is still single.
 * Theo Von has stated that he is a self-confessed nerd. and World of Warcraft.
 * Theo Von has a strong connection with the Philippines He has a strong connection with the Philippines. He speaks the language fluently.
 * He is a self-taught photographer He has a passion for photography.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

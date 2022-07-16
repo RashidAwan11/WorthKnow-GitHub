@@ -10,7 +10,7 @@ meta_Description: Wesley Eric Weston Jr. better known by his stage name Lil'
 url: lil-flip-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-11T10:53:04.291Z
-updateDate: 2022-03-11T10:53:04.318Z
+updateDate: 2022-07-16T17:13:04.522Z
 featured_Image: /uploads/lil-flip-net-worth-bio-and-details.jpeg
 categories:
   - Actors
@@ -77,6 +77,8 @@ Lіl’ Flip wаѕ born in Ноuѕtоn, Техаѕ, U.Ѕ. Не hаѕ асhіеv�
 
 He bесаmе а big hіt, and thіѕ held hіm соmе tо thе lіmеlіght. Не саught thе ѕіght оf DЈ Ѕсrеw, аnd еvеntuаllу, hе wаѕ іnvіtеd tо thе rар grоuр “Ѕсrеwеd Uр Сlісk.” Не did not gеt аnу рrореr еduсаtіоn аnd hаѕ аlѕо nоt аttеndеd соllеgе. 
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/katheryn-winnick-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Katheryn Winnick</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/6LDM86TposU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Lil Flip Education:**
@@ -101,6 +103,8 @@ Lil Flip earns approximately $50,000 per month.
 
 Lil Flip height is 6 feet(1.85 m) and weight is 198 Lbs(90 kg).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/james-charles-family-net-worth-bio-age-family-height-house-home-address-phone-number-email/" target="_blank" rel="noopener">James Charles</a>**
+
 ![Lil Flip Net Worth And Biography](/uploads/lil-flip-net-worth.jpeg)
 
 ## **Is Lil Flip Relationship Status Single/Married?**
@@ -116,11 +120,7 @@ Lil Flip is currently unmarried.
 
 * Twitter account is with the user name of <a href="https://twitter.com/LilFlip713" target="_blank" rel="nofollow" rel="noopener">@LilFlip713</a>
 * Instagram account is with the user name of <a href="https://www.instagram.com/lilflip713/" target="_blank" rel="nofollow" rel="noopener">@LilFlip713
-
-  </a>
 * Facebook account is with the user name of <a href="https://web.facebook.com/lilflip713" target="_blank" rel="nofollow" rel="noopener">@LilFlip713
-
-  </a>
 
 ## **Lil Flip Facts:**
 
@@ -131,3 +131,5 @@ Lil Flip is currently unmarried.
 * Flip has authored a book titled Don’t Let the Music Industry Fool You!, which was released in 2014.
 * He has accused rapper Paul Wall of copying his style.
 * Flip has also been featured in video games like Def Jam: Fight for NY.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

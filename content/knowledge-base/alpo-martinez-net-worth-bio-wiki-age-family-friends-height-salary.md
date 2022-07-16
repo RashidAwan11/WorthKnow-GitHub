@@ -12,7 +12,7 @@ meta_Keywords: Alpo Martinez Net Worth
 url: alpo-martinez-net-worth-bio-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-10T08:53:27.815Z
-updateDate: 2022-03-10T08:53:27.834Z
+updateDate: 2022-07-16T17:19:24.733Z
 featured_Image: /uploads/alpo-martinez-net-worth-bio-and-details-.webp
 categories:
   - Drug Dealer
@@ -81,6 +81,8 @@ Alberto Geddis Martinez, better known as Alpo Martinez, or simply Alpo, was an A
 
 Martinez later moved to Washington D.C. to increase employment where he soon became involved in the suburban area and increased his drug activities. He met Wayne ‘Silk’ Perry, a notorious gangster and slave of D.C., who later became his bodyguard and gunman. On January 3, 1990, Martinez and Big Head's accomplice Gary killed Rich Porter in the Bronx, New York. Porter had previously sold drugs with Martinez. Martinez believes Porter was in possession of the drugs prescribed for him and charged him excessively. Porter was dragged into a car and shot several times in the head and body, killing himself. Martinez apologised to the Porter family for the incident.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/alex-toussaint-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Alex Toussaint</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/8xn9oducP8E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## Alpo Martinez Education:
@@ -107,6 +109,8 @@ Alpo Martinez earned approximately $8000 plus per month.
 
 Alpo Martinez height was 6 feet 3 inches(1.92 m) and weight 154 Lbs(70 kg).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/tyler-perry-family-net-worth-bio-age-family-height-house-home-address-phone-number-email/" target="_blank" rel="noopener">Tyler Perry</a>**
+
 ![Alpo Martinez Net Worth And Biography](/uploads/alpo-martinez-net-worth.webp)
 
 ## Is Alpo Martinez Relationship Status Single/Married?
@@ -128,3 +132,5 @@ Alpo Martinez was a drug dealer. There is no record of his any achievement.
 * American drug dealer of Puerto Rican descent from New York City. 
 * He rose to prominence in the mid–1980s.
 * New York, Martinez expanded his drug trade to other cities, notably Washington, DC.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

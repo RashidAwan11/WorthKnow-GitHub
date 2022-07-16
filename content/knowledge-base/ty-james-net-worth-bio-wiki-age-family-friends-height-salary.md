@@ -10,7 +10,7 @@ meta_Keywords: Ty James Net worth
 url: ty-james-net-worth-bio-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-07T09:50:28.131Z
-updateDate: 2022-03-07T09:50:28.177Z
+updateDate: 2022-07-16T17:40:40.916Z
 featured_Image: /uploads/ty-james-net-worth-bio-and-details.webp
 categories:
   - Actors
@@ -77,6 +77,8 @@ Ty James was born on 13 July 1975 in America and she is 46 years old.
 
 Ty James is the daughter of funk legend Rick James. Her full name is Tenza. Rick James was not married to Ty and her brother, Rick Jr.'s mother, Syville Morgan. In all, he had four children, Ty, Rick Jr Tazman and Trey.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/shannon-abloh-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Shannon Abloh</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/2FyxzuQgbvI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## Ty James Education:
@@ -100,6 +102,8 @@ Ty James earns $32,000 per month.
 ## Ty James Height:
 
 In Meters 1.7 
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/dule-hill-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Dule Hill</a>**
 
 ![Ty James Net Worth And Biography](/uploads/ty-james-net-worth.webp)
 
@@ -128,3 +132,5 @@ Ty James is a Model and has performed in many Videos. She got popular for her Ac
 * Ty James is foodie.
 * Ty James does workout regularly.
 * Ty James consumes Alcohol and smoking.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

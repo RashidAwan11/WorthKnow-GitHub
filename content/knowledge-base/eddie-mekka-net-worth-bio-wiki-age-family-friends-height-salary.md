@@ -13,7 +13,7 @@ meta_Keywords: Eddie Mekka Net Worth
 url: eddie-mekka-net-worth-bio-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-07T09:25:03.341Z
-updateDate: 2022-03-07T09:25:03.368Z
+updateDate: 2022-07-16T17:41:34.417Z
 featured_Image: /uploads/eddie-mekka-net-worth.webp
 categories:
   - Actors
@@ -78,6 +78,8 @@ Eddie Mekka was born on 14 june 1952 and he was 69 years old.
 
 Mekka was born to Mariam and Vaughn Mekjian in 1959. Mariam, her mother, an Italian, and her father, Vaughn Mekjian, an American. Mariam was a printing press, and Vaughn Mekjian served in World War II as a veteran. He received his high school diploma from Burncoat High School. Eddie Mekka passed away on November 27, 2021, in Newhall, California. At the time of his death, he was 69 years old. The cause of his death is still unknown.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/aaron-franklin-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">keyword</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/jNQaTZ6TO98" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## Eddie Mekka Education:
@@ -101,6 +103,8 @@ Eddie Mekka earns $20,000 per month.
 ## Eddie Mekka Height:
 
 Eddie Mekka was a height of 5 feet 9 inches(1.8 m) and weighed 185 Lbs(78 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/paul-rodriguez-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Paul Rodriguez</a>**
 
 ![Eddie Mekka Net Worth And Biography](/uploads/eddie-mekka-.webp)
 
@@ -130,3 +134,5 @@ Driving was his famous hobby.
 * He began his career in 1970. 
 * He led the Worcester County Light Opera in Massachusetts. He worked as a teacher, teaching young people to sing. 
 * In 2010, she starred as Teve in Fiddler on the Roof at the John W. Engeman Theatre in Northport, New York, from April 29 to June 20. He was married to actress DeLee Lively from 1983 to 1992. He married Yvonne Marie Grace in 1994. They all had one daughter, Mia
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

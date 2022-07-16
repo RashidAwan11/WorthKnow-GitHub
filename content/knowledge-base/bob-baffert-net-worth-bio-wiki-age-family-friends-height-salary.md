@@ -14,7 +14,7 @@ meta_Keywords: Bob Baffert Net Worth
 url: bob-baffert-net-worth-bio-age-family-friends-height-salary/
 author: Nicholas Samantha
 date: 2022-02-21T20:43:21.967Z
-updateDate: 2022-02-28T11:09:14.186Z
+updateDate: 2022-07-16T18:08:57.907Z
 featured_Image: /uploads/bob-baffert-net-worth.webp
 categories:
   - Actors
@@ -86,6 +86,8 @@ As a child, Bob had an eye for horses and loved to ride them. He has always been
 
 In 1980, he joined the stable of “Mackinac Stables”, which was owned by the famous jockey, “George Stevens”. It was here that he began to ride at the age of 12 and became the assistant jockey, George. He gained experience from George and then he became a successful jockey himself.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/dana-isaiah-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Dana Isaiah</a>**
+
 # **Bob Baffert Education:**
 
 Bob Baffert studied at the University of California, Davis, and went to work as a jockey. He quit jockey in 1982 and started to train racehorses at his ranch. After four years, he became a successful trainer.
@@ -107,6 +109,8 @@ As an Actor and horse trainer, Bob Baffert earns $1,60000 per month.
 # **Bob Baffert Height:**
 
 Bob Baffert is 5 feet 6 inches tall (1.71m) and weighs 155 lbs (70kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/arrogant-tae-net-worth-bio-age-family-friends-height-salary/" target="_blank" rel="noopener">Arrogant Tae</a>**
 
 ![Bob Baffert Net Worth Biography](/uploads/bob-baffert-net-worth-biography.webp)
 
@@ -151,3 +155,5 @@ Baffert has been married twice and has five children. Four children from first p
 * His horses have won more than $200 million. He has won more than 1,000 awards for his wines and fruit juices.
 * He is known as “The King of Trainers”.
 * He is the only trainer to win the Kentucky Derby with two different horses in two consecutive years.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

@@ -11,7 +11,7 @@ meta_Keywords: Crunchy Black Net Worth
 url: crunchy-black-net-worth-bio-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-08T08:40:42.001Z
-updateDate: 2022-03-08T08:40:42.027Z
+updateDate: 2022-07-16T17:25:34.164Z
 featured_Image: /uploads/crunchy-black-net-worth-bio-and-details.webp
 categories:
   - Rapper
@@ -80,6 +80,8 @@ Dаrnеll Саrltоn, better known by his stage name, Сrunсhу Вlасk is a m
 
 Crunchy is known for his dancing "G-Walking", which he says he started doing at Club Memphis. He is not the originator of this dance, but he excelled at it and considers himself a pioneer of the style.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/joshua-bassett-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Joshua Bassett</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/3_Gd7V_CFlc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## Crunchy Black Education:
@@ -101,6 +103,8 @@ Crunchy Black earns approximately $50,000 plus per month.
 ## Crunchy Black Height:
 
 Crunchy Black has a net worth of 5 feet 7 inches(1.73 m) and weight is 146 Lbs(66 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/demi-bagby-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Demi Bagby</a>**
 
 ![Crunchy Black Net Worth And Biography](/uploads/crunchy-black-net-worth-.webp)
 
@@ -135,3 +139,5 @@ Crunchy base is a travelling lover.
 * He eventually went back to the same group he’d left.
 * He’s no stranger to a jail cell.
 * He doesn’t know yet where he wants his career to take him next.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

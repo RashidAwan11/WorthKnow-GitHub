@@ -11,7 +11,7 @@ meta_Keywords: Eric Andre Net Worth
 url: eric-andre-net-worth-bio-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-02T09:49:49.871Z
-updateDate: 2022-03-02T10:18:38.949Z
+updateDate: 2022-07-16T17:56:32.227Z
 featured_Image: /uploads/eric-andre-net-worth-bio-wiki-age-family-friends-height-salary.png
 categories:
   - Actors
@@ -78,6 +78,8 @@ Eric Andre was born on the 4 April 1983 and he is 38 years old.
 
 Eric Andre relationship with the ladies is unknown as he is very focused on his work and likes to keep his life a secret. He dated three women, including them; Tatyana Ali (2014) Amber Rose (2015), and her last relationship was in 2016 with Rosan Dawson.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/brittany-furlan-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Brittany Furlan</a>**
+
 ## **Eric Andre Education:**
 
 Eric Andre graduated from the Dreyfo School of the Arts in Florida in 2001, and in 2005 began studying music at Werkley College in Masetsashou. He holds the degree of BFA.
@@ -101,6 +103,8 @@ Eric Andre earns approximate $40,000 per month.
 ## **Eric Andre Height:**
 
 Eric Andre Height is 6 feet (1.83 m), weight 169 Ibs (77kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/katheryn-winnick-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Katheryn Winnick</a>**
 
 ![Eric Andre Net Worth Biography](/uploads/eric-andre-net-worth-bio-and-details.webp)
 
@@ -135,3 +139,5 @@ Like many other celebrities around the world, Eris Andre has not been recognized
 * He identifies as black and Jewish.
 * He’s been the class clown for most of his life.
 * He is not a fan of race comedy.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

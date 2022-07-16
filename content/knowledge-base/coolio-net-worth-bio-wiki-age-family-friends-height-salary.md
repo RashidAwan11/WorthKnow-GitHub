@@ -11,7 +11,7 @@ meta_Keywords: Coolio Net Worth
 url: coolio-net-worth-bio-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-08T05:26:35.165Z
-updateDate: 2022-03-08T05:26:35.194Z
+updateDate: 2022-07-16T17:33:28.993Z
 featured_Image: /uploads/coolio-net-worth-bio-and-details-.webp
 categories:
   - Rapper
@@ -76,6 +76,8 @@ Coolio was born on 1 August 1963 and he is 58 years old.
 
 Born Artis Leon Ivey, to Artis Leon Ivey Sr., a carpenter, and Jackie Slater, a factory worker, Coolio was prone to asthma attacks. Intelligent, literate, and knowledgeable, he found it difficult to survive outside the home. He joined a street gang, the Baby Crips, and tried to create an unruly and violent image by taking up arms at school. His studies were in jeopardy after she was jailed for several months for rape. After graduating from high school, he went to Compton Community College and rekindled his interest in high school in rap and played in competitions where he was called ‘Coolio Iglesias.’, And on the L.A. rap radio station, KDAY. To defeat the cocaine addict, who disrupted his career as a budding rapper, he went into rehab. When he came out, he did various weird jobs, but he was determined to revive his rap career.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/smokepurpp-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Smokepurpp</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/E4REBbDw9T0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## Coolio Education:
@@ -97,6 +99,8 @@ Coolio earns $32,000 per month.
 ## Coolio Height:
 
 Coolio height is 5 feet 6 inches(1.73 m) and weight is 154 Lbs(70 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/trevor-jackson-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Trevor Jackson</a>**
 
 ![Coolio Net Worth And Biography](/uploads/coolio-net-worth.webp)
 
@@ -134,3 +138,5 @@ In 2002, he appeared in a television program, 'Celebrity Fear Factor', titled, "
 
 * Coolio’s 1994 album, ‘Takes a Thief’, climbed to No. 8 on the Billboard 200, and was certified Platinum. The album was appreciated for the humorous take on typical gangsta rap themes.
 * His song ‘Gangsta’s Paradise’ in the 1995 movie, ‘Dangerous Minds’, stayed on the top of the Billboard Hot 100 chart for 3 weeks. It was a No.1 hit in Europe, Australia and New Zealand.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

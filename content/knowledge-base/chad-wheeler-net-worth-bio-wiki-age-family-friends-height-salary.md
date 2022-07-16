@@ -13,7 +13,7 @@ meta_Keywords: Chad Wheeler Net Worth
 url: chad-wheeler-net-worth-bio-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-11T10:03:10.731Z
-updateDate: 2022-03-11T10:03:10.761Z
+updateDate: 2022-07-16T17:15:17.570Z
 featured_Image: /uploads/chad-wheeler-net-worth-bio-and-details-.webp
 categories:
   - American Football Player
@@ -80,6 +80,8 @@ On December 19, 2015, Wheeler was involved in an incident at a USC facility. Los
 
 On January 23, 2021, Wheeler was arrested in Kent, Washington, on charges of domestic violence. He was charged with three counts of domestic violence and later released on $ 400,000 bail. Wheeler said he would retire temporarily to "cover his life" after the incident. He pleaded not guilty to the charges on February 1, 2021.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/rudy-ruettiger-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Rudy Ruettiger</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/Ny92f2ngMLI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Chad Wheeler Education:**
@@ -102,6 +104,8 @@ Chad Wheeler earns approximately $60,000 per month.
 
 Chad Wheeler height is 6 feet 8 inches(2.1 m) and weighs 310 Lbs(141 kg).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/selena-quintanilla-family-net-worth-bio-age-family-height-house-home-address-phone-number-email/" target="_blank" rel="noopener">Selena Quintanilla</a>**
+
 ![Chad Wheeler Net Worth And Biography](/uploads/chad-wheeler-net-worth.png)
 
 ## **Is Chad Wheeler Relationship Status Single/Married?**
@@ -120,3 +124,5 @@ Team representatives and scouts from all 32 NFL teams attended as Wheeler opted 
 ## **Chad Wheeler Facts:**
 
 He played college football for the USC Trojans football team from 2012 to 2016. At the end of the 2016 season, he was selected as a first-team All-Pac-12 player. He was also chosen by Campus Insiders.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

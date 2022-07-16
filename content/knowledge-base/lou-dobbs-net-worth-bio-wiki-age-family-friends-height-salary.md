@@ -12,7 +12,7 @@ meta_Keywords: Lou Dobbs Net Worth
 url: lou-dobbs-net-worth-bio-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-07T05:11:52.564Z
-updateDate: 2022-03-07T05:11:52.589Z
+updateDate: 2022-07-16T17:48:16.534Z
 featured_Image: /uploads/lou-dobbs-net-worth-bio-wiki-age-family-friends-height-and-salary.jpg
 categories:
   - Richest Celebrities
@@ -80,6 +80,8 @@ Lou Dobbs was born on 24 September 1945 and he is 76 years old.
 
 Dobbs was the first proponent of Barack Obama birtherism theory, stating that Obama is not a natural American citizen, a view that was strongly promoted by candidate Donald Trump prior to his 2016 election. He is known for watching people from other countries. , as well as various deep-seated ideologies, opposition to NAFTA and other trade agreements. Trump’s reference, his show is known for its pro-Trump broadcast.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/trapboy-freddy-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Trapboy Freddy</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/-ttOoCxDxAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## Lou Dobbs Education:
@@ -103,6 +105,8 @@ Lou Dobbs earns $5 million per month.
 ## Lou Dobbs Height:
 
 Lou Dobbs height is 6 feet and 1 inches(1.88 m) and 171 Lbs(78kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/mr-papers-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Mr Papers</a>**
 
 ![Lou Dobbs Net Worth And Biography](/uploads/lou-dobbs-net-worth.jpg)
 
@@ -131,3 +135,5 @@ Fоr hіѕ wоrk, hе hаѕ wоn lоtѕ оf аwаrdѕ throughout hіѕ саrее
 * Dobs was awarded the Eugene Katz Prize for Excellence in Integration and Immigration by the Center for Immigration Studies in 2004.
 * The Alexis de Tocqueville Institution's Statesmanship Award in 2005.
 * Dobbs was awarded the American Legion Public Relations Award from the National Commander of The American Legion in 2008.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

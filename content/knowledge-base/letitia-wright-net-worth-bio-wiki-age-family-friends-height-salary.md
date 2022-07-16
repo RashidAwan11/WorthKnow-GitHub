@@ -12,7 +12,7 @@ meta_Keywords: Letitia Wright Net Worth
 url: letitia-wright-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-15T06:57:05.736Z
-updateDate: 2022-03-15T07:20:17.919Z
+updateDate: 2022-07-16T17:01:47.899Z
 featured_Image: /uploads/letitia-wright-net-worth-bio-and-details-.png
 categories:
   - Actors
@@ -77,6 +77,8 @@ Letitia Wright was born 31 October 1993 and she is 28 years old.
 
 Letitia Michelle Wright was born in Georgetown, Guyana. Her family moved to London, England, when she was seven years old and studying there. Wright opened up about her depression. She told Vanity Fair in 2018 that when she first became depressed at the age of 20, "she was in the dark facing a lot of bad things." Wright praises her Christian faith by helping her to cope with depression, which she experienced after attending a Bible-based conference in London. To focus on her recovery and faith, she rejected the film's roles. She later explained that she "needed to take a break from acting" and "took a trip to find my relationship with God, and she became a Christian."
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/lil-cease-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Lil Cease</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/IPeL7ZIwiK8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Letitia Wright Education:**
@@ -102,6 +104,8 @@ Letitia Wright earns approximately $60,000 per month.
 ## **Letitia Wright Height:**
 
 Letitia's height is 5 feet and 5 inches(1.65 m) and weighs 113 Lbs(51 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/lil-zane-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Lil Zane</a>**
 
 ![Letitia Wright Net Worth And Biography](/uploads/letitia-wright-net-worth.png)
 
@@ -138,3 +142,5 @@ Letitia is currently single.
 * She has a Guyanese accent. (Of course she has, she is from there).
 * For her role in Urban Hymn she read the script and watched a lot of documentaries on youtube about young offenders as a part of research.
 * She likes Gospel Music, Indie music among various forms she likes.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

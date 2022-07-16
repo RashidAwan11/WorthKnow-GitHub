@@ -12,7 +12,7 @@ meta_Keywords: Chris Norton Net worth
 url: chris-norton-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-14T10:18:06.348Z
-updateDate: 2022-03-15T05:25:23.373Z
+updateDate: 2022-07-16T17:10:55.811Z
 featured_Image: /uploads/chris-norton-net-worth-bio-and-details.webp
 categories:
   - Motivational Speaker
@@ -79,6 +79,8 @@ Although much information about Chris Norton's early life is not available, it c
 
 Things changed for him when he suffered a spinal cord injury in a soccer match that left him paralyzed. In 2010, he became paralyzed during a spectacular match against Central College. He was given a 3% chance to regain his movement under his neck. However, life has been getting better as he and his wife in Florida hold on to his nonprofit foundation. Chris Norton Net Worth is ranked in the top celebrity category.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/junior-h-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Junior H</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/rcPzbQIjNwc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Chris Norton Education:**
@@ -102,6 +104,8 @@ Chris Norton earns approximately $30,000 per month.
 ## **Chris Norton Height:**
 
 Chris Norton is 5 feet 7 inches(1.75 m) and weighs 214 Lbs(97 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/rush-limbaugh-family-net-worth-bio-age-family-height-house-home-address-phone-number-email/" target="_blank" rel="noopener">Rush Limbaugh</a>**
 
 ![Chris Norton Net worth And Biography](/uploads/chris-norton-net-worth-.webp)
 
@@ -130,3 +134,5 @@ Chris Norton is a former footballer, and on October 16, 2010, Norton got into a 
 
 * Norton obtained a degree in music from the University of Otago in 1974. 
 * He taught music in Wellington high schools, worked as a composer-in-schools for a year, and then freelanced as a composer, arranger and pianist.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

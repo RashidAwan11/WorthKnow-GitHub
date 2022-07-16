@@ -12,7 +12,7 @@ meta_Keywords: Ted Sarandos Net Worth
 url: ted-sarandos-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-15T07:30:17.793Z
-updateDate: 2022-03-15T07:43:46.822Z
+updateDate: 2022-07-16T17:00:37.170Z
 featured_Image: /uploads/ted-sarandos-net-worth-bio-and-details-.png
 categories:
   - Businessperson
@@ -85,6 +85,8 @@ He was promoted to manager of the Arizona Video Cassettes West chain store in 19
 
 East Texas Distributors (ETD). Until March 2000, Sarandos was Vice President of Production and Sales for approximately 500 stores, Video City / West Coast Video. While at West Coast Video, he was responsible for negotiating revenue agreements to move the company from VHS format to DVD format.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/kaitlin-bennett-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Kaitlin Bennett</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/W9j9q_EdaNk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Ted Sarandos Education:**
@@ -108,6 +110,8 @@ Ted Sarandos earns approximately $1.5 million plus per month.
 ## **Ted Sarandos Height:**
 
 Ted Sarandos height is 5 feet 9 inches(1.8 m) and weight 176 Lbs(80 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/michael-moorer-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Michael Moorer</a>**
 
 ![Ted Sarandos Net Worth And Biography](/uploads/ted-sarandos-net-worth-.png)
 
@@ -135,3 +139,5 @@ He was nominated for the Primetime Emmy Awards. He also received the honour of b
 * Sarandos was born in Phoenix, Arizona, to father Ted Sarandos, who was an electrician, and a mother who was a stay-at-home mom. 
 * He is the fourth of five children, with three older sisters and a younger brother. 
 * Sarandos' paternal grandfather came from the Greek island of Samos to the United States as a young boy.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

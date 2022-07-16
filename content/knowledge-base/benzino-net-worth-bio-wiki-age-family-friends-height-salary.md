@@ -12,7 +12,7 @@ meta_Keywords: Benzino Net Worth
 url: benzino-net-worth-bio-age-family-friends-height-salary/
 author: Nicholas Samantha
 date: 2022-02-21T20:44:40.526Z
-updateDate: 2022-02-28T11:07:52.223Z
+updateDate: 2022-07-16T18:07:59.117Z
 featured_Image: /uploads/benzino-net-worth-bio-age-family-friends-height-salary.webp
 categories:
   - Rapper
@@ -80,6 +80,8 @@ Benzino was born on 18 July, 1965 and he is 56 years old.
 
 Benzino is a rapper who became famous in the 90s. The real name of Benzino is Raymond Scott and he is well known for his great skills in rapping. He started his career in the year 1989 and has released various albums like “The Great Ray Benzino” and “Ray Benzino’s World”. He has worked with a number of artists including Jay-Z, Dr. Dre, Snoop Dogg, and Eminem.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/uicideboy-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Uicideboy</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/Vr9cTAGdkHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Benzino Education:**
@@ -110,6 +112,8 @@ As a Rapper, Benzino earns $8,000 per week and $32,000 per month.
 
 Benzino's Height is 5 feet 3 inches (1.6meters) and weighs 176 lbs (80kg).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/rae-dunn-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Rae Dunn</a>**
+
 ![Benzino Net Worth Biography](/uploads/benzino-net-worth-biography.webp)
 
 ## **Is Benzino Relationship Status Single/Married?**
@@ -139,3 +143,5 @@ Benzino is also known for his collaborations with various artists including the 
 * He used to work as a DJ in clubs and bars before he started to rap.
 * He made his debut in the music industry in 1989 through his song “Jiggle It, Jiggle It”.
 * The song was a number one hit on the Billboard Hot 100 and became the most successful song of that year.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

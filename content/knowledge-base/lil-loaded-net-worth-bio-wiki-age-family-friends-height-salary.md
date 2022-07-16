@@ -11,7 +11,7 @@ meta_Keywords: Lil Loaded Net Worth
 url: lil-loaded-net-worth-bio-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-07T11:03:10.589Z
-updateDate: 2022-03-07T11:03:10.617Z
+updateDate: 2022-07-16T17:37:29.331Z
 featured_Image: /uploads/lil-loaded-net-worth-bio-and-details-.webp
 categories:
   - Rapper
@@ -80,6 +80,8 @@ On October 25, 2020, Robertson allegedly shot and killed his friend, Khalil Walk
 
 Robertson died, apparently by suicide by gunshot wound to the head, on May 31, 2021, at the age of 20. He was found dead by his mother and called by police. When police arrived, they saw her mother outside the house crying and told them that Robertson was inside the house with a gunshot wound to the head. He said he was upset about breaking up with his girlfriend the night before.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/dj-pooh-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Dj Pooh</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/P5ftxpW1a1o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## Lil Loaded Education:
@@ -103,6 +105,8 @@ Lil Loaded earns  $4.93K per month.
 ## Lil Loaded Height:
 
 Lil Loaded height was 5 feet 8 inches(172 cm) and weight 132 Lbs(60 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/alfred-molina-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Alfred Molina</a>**
 
 ![Lil Loaded Net Worth And Biography](/uploads/lil-loaded-net-worth.webp)
 
@@ -135,3 +139,5 @@ Robertson later signed with Epic Records. He released the mixtape 6locc 6a6y in 
 * ranked in the elit list.
 * Not engaged.
 * Was certified gold in 2021.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

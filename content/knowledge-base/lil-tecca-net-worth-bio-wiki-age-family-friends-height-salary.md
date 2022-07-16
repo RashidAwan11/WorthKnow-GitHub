@@ -14,7 +14,7 @@ meta_Keywords: Lil Tecca Net Worth
 url: lil-tecca-net-worth-bio-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-02-28T08:27:57.334Z
-updateDate: 2022-04-04T02:52:24.174Z
+updateDate: 2022-07-16T17:59:32.431Z
 featured_Image: /uploads/lil-tecca-net-worth.webp
 categories:
   - Rapper
@@ -82,6 +82,8 @@ Lil Tecca was born on 26 August 2002 and he is 19 years old.
 
 Lil Tecca grew up in the Springfield Gardens area of ​​Queens but later moved to Lawrence on Long Island. She is of Jamaican descent, and both of her parents are Jamaican immigrants. From a young age, Sharpe had aspired to be in the NBA.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/leticia-bufoni-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Leticia Bufoni</a>**
+
 ## **Lil Tecca Education:**
 
 Lil Tecca attended Lawrence High School.
@@ -101,6 +103,8 @@ Lil Tecca earns approximately $21000 per month.
 ## **Lil Tecca Height:**
 
 Lil Tecca Height is 5 feet 8 inches (1.79 meters) and weighs 127 lbs (57kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/ryan-dunn-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Ryan Dunn</a>**
 
 ![Lil Tecca Net Wortj Biography](/uploads/lil-tecca-net-worth-biography.webp)
 
@@ -133,3 +137,5 @@ Lil Tecca is still single.
 * He wants to collab with Chief Keef, but he'll also take Drake.
 * Being Jamaican influenced his sound and taste buds.
 * If he wasn't a rapper, he would be a producer.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

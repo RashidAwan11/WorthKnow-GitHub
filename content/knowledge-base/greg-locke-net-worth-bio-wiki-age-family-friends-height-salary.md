@@ -13,7 +13,7 @@ meta_Keywords: Greg Locke Net Worth
 url: greg-locke-net-worth-bio-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-08T07:03:04.298Z
-updateDate: 2022-03-08T07:03:04.327Z
+updateDate: 2022-07-16T17:27:40.571Z
 featured_Image: /uploads/greg-locke-net-worth-bio-and-details-.webp
 categories:
   - Author
@@ -70,7 +70,7 @@ faqs:
 
 ## Introduction Greg Locke:
 
-Greg Locke is an Independent Baptist evangelist and pastor. Locke is also the author of a book entitled Blinded by Benny which is very important to the loving faith healerBenny Hinn. In 2004, his life story and spiritual transformation were aired on the "Unshackled" radio program.
+Greg Locke is an Independent Baptist evangelist and pastor. Locke is also the author of a book entitled Blinded by bBenny which is very important to the loving faith healerBenny Hinn. In 2004, his life story and spiritual transformation were aired on the "Unshackled" radio program.
 
 ## How old is Greg Locke?
 
@@ -87,6 +87,8 @@ He was very upset with her speech but did not say anything about marriage. Prior
 Melissa and the pastor have been married for over 21 years and have 3 sons and a daughter together. Both his wives were part of his gospel and his church. In fact, his first wife was a staunch supporter of the Christian faith and often sent a number of trustworthy messages to support their congregation.
 
 Even his second wife is a staunch supporter of their religious beliefs and has many followers online about their purpose and God’s message. Some of the zealous clergy have called Locke an “Adulterer in God’s Eyes”.
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/demi-bagby-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Demi Bagby</a>**
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/AcS1n0CWRS4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
@@ -112,6 +114,8 @@ Greg Locke earns approximately $900,000 per month.
 
 Greg Locke height is 5 feet 6 inches(170 cm) and weight is 121 Lbs(55 kg).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/nick-gordon-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Nick Gordon</a>**
+
 ![Greg Locke Net Worth And Biography](/uploads/greg-locke-net-worth.webp)
 
 ## Is Greg Locke Relationship Status Single/Married?
@@ -134,3 +138,5 @@ Greg Locke is the winner of the WHO'S WHO IN AMERICA Award for both 2005 and 200
 * Locke has a large following online, including more than 2.2 million likes on his Facebook page.
 * He is often sought out for many church events.
 * Greg had preached in 48 states and 16 nations worldwide and preached his first sermon when he was 16.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

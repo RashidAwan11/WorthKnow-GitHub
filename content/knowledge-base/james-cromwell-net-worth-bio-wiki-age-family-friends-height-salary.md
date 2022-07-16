@@ -11,7 +11,7 @@ meta_Keywords: James Cromwell Net Worth
 url: james-cromwell-net-worth-bio-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-11T09:38:59.499Z
-updateDate: 2022-03-11T09:38:59.551Z
+updateDate: 2022-07-16T17:16:15.409Z
 featured_Image: /uploads/james-cromwell-net-worth-bio-and-details-.webp
 categories:
   - Actors
@@ -81,6 +81,8 @@ James Cromwell was born January 27, 1940 and he is  years old.
 
 He went to Ніll Ѕсhool for his high school and later I went to Міddlеburу Соllеgе. Srоmwell went to Саrnеgіе Меllon Unіvеrsitу, where he received a retention and received his submission. He study НВ Ѕtudіо in New York Сіtу, where he was trained in astіt.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/ryan-dunn-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Ryan Dunn</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/wFqYQqqdirk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **James Cromwell Education:**
@@ -106,6 +108,8 @@ James Cromwell earns approximately $32000 per month.
 ## **James Cromwell Height:**
 
 James Cromwell height is 6 feet 7 inches (2.01 m) and weight is 194 Lbs(88 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/steve-harvey-family-net-worth-bio-age-family-height-house-home-address-phone-number-email/" target="_blank" rel="noopener">Steve Harvey</a>**
 
 ![James Cromwell Net Worth And Biography](/uploads/james-cromwell-net-worth-.webp)
 
@@ -133,3 +137,5 @@ Yes, James Cromwell is married.
 
 * James Oliver Cromwell is an American film and television actor, probably best known for his role as Dr. Zefram Cochrane in Star Trek First Contact. 
 * He has been nominated for an Oscar, three Emmy Awards, and four Screen Actors Guild Awards during his career.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

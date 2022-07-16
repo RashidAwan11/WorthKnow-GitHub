@@ -12,7 +12,7 @@ meta_Keywords: Mike White Net Worth
 url: mike-white-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-15T09:39:33.871Z
-updateDate: 2022-03-15T09:41:25.484Z
+updateDate: 2022-07-16T16:58:08.269Z
 featured_Image: /uploads/mike-white-net-worth-bio-and-details-.png
 categories:
   - Actors
@@ -77,6 +77,8 @@ Mike White was born on June 28, 1970 and is 51 years old.
 
 White was born in Pasadena, California. He attended Polytechnic School and Wesleyan University. White is the son of Lyla Lee (née Loehr), a fundraiser, and Rev. Dr. James Melville "Mel" White, a former speechwriter and ghost of Relational Right figures such as Jerry Falwell and Pat Robertson. White obviously likes men and women. His father came out gay in 1994. 
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/jackie-sandler-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Jackie Sandler</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/wo6m9VeBWO4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Mike White Education:**
@@ -101,6 +103,8 @@ Mike White earns approximately $32000 per month.
 
 Mike White height is 5 feet 8 inches(1.75 m) and weighs 220 Lbs(99 kg).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/matthew-koma-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Matthew Koma</a>**
+
 ![Mike White Net Worth And Biography](/uploads/mike-white-net-worth-bio-and-details.png)
 
 ## **Is Mike White Relationship Status Single/Married?**
@@ -121,7 +125,7 @@ In February 2022, it was announced that White would write the next two animated 
 
 ## **Mike White Social Media:**
 
-*  Twitter account is with the user name of <a href="https://twitter.com/mwhiteburgh" target="_blank" rel="nofollow" rel="noopener">@mwhiteburgh</a>
+* Twitter account is with the user name of <a href="https://twitter.com/mwhiteburgh" target="_blank" rel="nofollow" rel="noopener">@mwhiteburgh</a>
 
 ## **Mike White Hobbies:**
 
@@ -138,3 +142,5 @@ In February 2022, it was announced that White would write the next two animated 
 * Wrote the screenplay for 2003's School of Rock with his friend and former neighbour Jack Black in mind for the lead.
 * Made his directorial debut in the 2007 comedy Year of the Dog.
 * Is a fan of reality TV and was a contestant on The Amazing Race alongside his father in 2009 and 2011.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

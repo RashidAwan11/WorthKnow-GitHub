@@ -14,7 +14,7 @@ meta_Keywords: Matthew Lillard Net Worth
 url: matthew-lillard-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-15T09:08:29.339Z
-updateDate: 2022-04-04T02:50:54.536Z
+updateDate: 2022-07-16T16:59:40.181Z
 featured_Image: /uploads/matthew-lillard-net-worth-bio-and-details-.png
 categories:
   - Actors
@@ -79,6 +79,8 @@ Matthew Lillard was born January 24, 1970 and he is 52 years old.
 
 Lillard was born in Lansing, Michigan, the son of Paula and Jeffrey Lillard (born 1948), and grew up in Tustin, California. He has a younger sister, Amy, and attended Foothill High School in North Tustin, California. He later studied at the American Academy of Dramatic Arts in Pasadena, California, with fellow actor Paul Rudd. He also attended Circle at Square Theater School in New York City.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/geno-doak-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Geno Doak</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/lYbttfCXuvQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Matthew Lillard Education:**
@@ -107,6 +109,8 @@ Matthew earns approximately $32000 per month.
 
 Matthew Lillard is 6 feet 3 inches(1.91 m) and weighs 194 Lbs(88 kg).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/sada-baby-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Sada Baby</a>**
+
 ![Matthew Lillard Net Worth And Biography](/uploads/matthew-lillard-net-worth.png)
 
 ## **Is Matthew Lillard Relationship Status Single/Married?**
@@ -120,7 +124,7 @@ Yes, Matthew is married.
 ## **Matthew Lillard Social Media:**
 
 *  Twitter account is with the user name of <a href="https://twitter.com/MatthewLillard" target="_blank" rel="nofollow" rel="noopener">@MatthewLillard</a>
-*  Instagram account is with the user name of <a href="https://www.instagram.com/matthewlillard/" target="_blank" rel="nofollow" rel="noopener">@MatthewLillard</a>
+* Instagram account is with the user name of <a href="https://www.instagram.com/matthewlillard/" target="_blank" rel="nofollow" rel="noopener">@MatthewLillard</a>
 
 ## **Matthew Lillard Hobbies:**
 
@@ -131,3 +135,5 @@ Yes, Matthew is married.
 ## **Matthew Lillard Facts:**
 
 On August 26, 2000, Lillard married Heather Helm, with whom they had three children. They live in Los Angeles.In October 2005, he participated in the Dungeons & Dragons competition, competing with members of the Quest Club Gaming Organisation, Magic Castle in Hollywood, California. Lillard has previously played with the Dungeons & Dragons online series Dice, Camera, Action and Christopher Perkins as Dungeon Artist.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

@@ -11,7 +11,7 @@ meta_Keywords: Willie Falcon Net Worth
 url: willie-falcon-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-21T04:49:54.725Z
-updateDate: 2022-03-21T05:18:18.592Z
+updateDate: 2022-07-16T16:38:35.922Z
 featured_Image: /uploads/willie-falcon-net-worth-bio-and-details.webp
 categories:
   - Drug Dealer
@@ -76,6 +76,8 @@ Willie Falcon was born on September 1, 1955 and he is 66 years old.
 
 Willie Falcon's birth took place on September 1, 1955. Despite not knowing his parents, Willie Falcon grew up in Cuba with his brother Gustavo Falcon and his family. With his beloved mother, he has a very strong relationship. After attending a local private college in Cuba, he enrolled at Miami Senior High College to attend high school. After dropping out of high school, he worked to support himself and his close friend Sal Magluta. His real name is Augusto Willie Falcon. While still in school, they began selling cocaine and marijuana to supplement their meagre income. When school ends, they walk together.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/dana-isaiah-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Dana Isaiah</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/81B6m783I3g" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Willie Falcon Education:**
@@ -102,6 +104,8 @@ Willie Falcon earns approximately $250,000 per month.
 
 Willie Falcon height is 5 feet 8 inches(1.73 m) and weighs 145 Lbs(65 kg).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/kliff-kingsbury-family-net-worth-bio-age-family-height-house-home-address-phone-number-email/" target="_blank" rel="noopener">Kliff Kingsbury</a>**
+
 ![Willie Falcon Net Worth And Biography](/uploads/willie-falcon-net-worth-.webp)
 
 ## **Is Willie Falcon Relationship Status Single/Married?**
@@ -121,3 +125,5 @@ Yes, Willie Falcon was married.
 * He mostly transport cocaine via boats or planes.
 * They also opened a route for smuggling in Mexico.
 * His friend Sal Magluta was sentenced to 195 years in Jail.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

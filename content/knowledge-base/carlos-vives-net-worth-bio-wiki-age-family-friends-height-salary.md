@@ -12,7 +12,7 @@ meta_Keywords: Carlos Vives Net Worth
 url: carlos-vives-net-worth-bio-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-07T07:16:52.871Z
-updateDate: 2022-03-07T07:16:52.895Z
+updateDate: 2022-07-16T17:44:21.903Z
 featured_Image: /uploads/carlos-vives-net-worth-bio-and-details.webp
 categories:
   - Actors
@@ -79,6 +79,8 @@ Carlos Vives was born on 7 august 1961 and he is 60 years old.
 
 Carlos Vives was born in Santa Marta, Magdalena, Colombia, where he spent the first 12 years of his life. Meanwhile, he and his family moved to Bogotá in search of a better life. He enrolled at Jorge Tadeo Lozano University and holds a degree in Advertising from the University. In Bogotá, he also developed a love for rock music, became involved in the local music scene, and began performing in bars and restaurants around the city.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/lee-jung-jae-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Lee Jung Jae</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/4qsMw5s-55w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## Carlos Vives Education:
@@ -102,6 +104,8 @@ Carlos Vives earns approximately $ 32,000 per month.
 ## Carlos Vives Height:
 
 Carlos Vives height is 5 feet 8n inches (1.78 m) and weight is 162.8 Lbs (74 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/geno-doak-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Geno Doak</a>**
 
 ![Carlos Vives Net Worth And Biography](/uploads/carlos-vives-.webp)
 
@@ -132,3 +136,5 @@ Carlos Vives married Margarita Rosa de Francisco in 1988, but they got divorced 
 * In 1982, Carlos Vives began acting in a number of shows and telenovelas including "Pequenos Gigantes" and "Tuyo es Mi Corazón" (You are My Heart—1985).
 * Carlos Vives finally found fame in 1986 by playing the title role of Gallito Ramirez, which told the story of a Colombian Caribbean coast boxer who falls in love with an uptight girl, who was portrayed by his first wife, Margarita Rosa de Francisco.
 * In 1982, Carlos Vives became an actor and among the first telenovelas where he made an appearance was "Pequenos Gigantes".
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

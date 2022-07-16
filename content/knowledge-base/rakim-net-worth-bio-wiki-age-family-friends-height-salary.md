@@ -10,7 +10,7 @@ meta_Keywords: Rakim Net Worth
 url: rakim-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-21T06:10:02.369Z
-updateDate: 2022-03-21T06:25:35.386Z
+updateDate: 2022-07-16T16:33:51.215Z
 featured_Image: /uploads/rakim-net-worth-bio-and-details.webp
 categories:
   - Rapper
@@ -75,6 +75,8 @@ Rakim was born on January 28, 1968 and he is 54 years old. 
 
 Rаkіm, known as Wіllіam Місhaеl Grіffіn Јr., Was born in the suburb of Lоng Іѕland of Whуand. He is the newcomer to Amerícan R & В singer and actress Ruth Вrоwn. At the age of 18, he was involved in New York's hip-hoр. In 1985, Rаkіm began writing regularly at Wyandanch Ніgh Ѕсhool, where he became known as Kard Wіd. At the age of 16, he was converted to Islam and later changed his name to Rakkim Аllah.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/tyler-perry-family-net-worth-bio-age-family-height-house-home-address-phone-number-email/" target="_blank" rel="noopener">Tyler Perry</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/Tvy8uPUBnyw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Rakim Education:**
@@ -107,6 +109,8 @@ Rakim earns $28000 per month.
 
 Rakim is 6 feet(1.8 m) tall and weighs 187 Lbs(85 kg).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/alev-aydin-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Alev Aydin</a>**
+
 ![Rakim Net Worth And Biography](/uploads/rakim-net-worth-.webp)
 
 ## **Is Rakim Relationship Status Single/Married?**
@@ -126,3 +130,5 @@ Yes, Rakim is married.
 ## **Rakim Facts:**
 
 He was once in a relationship with Nicole Smith. They never took their vows but they have a son together. Currently, he is said to be married to a lady named Felicia. The two met when they were still kids. Their union is blessed with three children – Destiny, Jabar, and Tahmell.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

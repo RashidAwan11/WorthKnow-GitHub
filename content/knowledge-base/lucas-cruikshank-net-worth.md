@@ -11,7 +11,7 @@ meta_Keywords: Lucas Cruikshank Net Worth
 url: lucas-cruikshank-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-19T14:28:52.003Z
-updateDate: 2022-03-19T14:43:18.206Z
+updateDate: 2022-07-16T16:42:47.781Z
 featured_Image: /uploads/lucas-cruikshank-net-worth-bio-and-details.webp
 categories:
   - YouTuber
@@ -74,7 +74,9 @@ Lucas Cruikshank was born August 29, 1993 and he is 28 years old.
 
 ## **Lucas Cruikshank Personal life/Biography:**
 
-Lucas Alan Cruikshank grew up in Columbus, Nebraska, where he attended Lakeview High School. He is the son of Molly Jeanne (née Duffy) and Dave Alan Cruikshank. He has five sisters and two brothers. 
+Lucas Alan Cruikshank grew up in Columbus, Nebraska, where he attended Lakeview High School. He is the son of Molly Jeanne (née Duffy) and Dave Alan Cruikshank. He has five sisters and two brothers.
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/nick-gordon-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Nick Gordon</a>**
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/nembJqGOlww" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
@@ -99,6 +101,8 @@ Lucas Cruikshank earns approximately 180,000 per month.
 ## **Lucas Cruikshank Height:**
 
 Lucas Cruikshank height is 5 feet 8 inches(1.73 m) and weighs 143 Lbs(65 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/tj-hunt-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Tj Hunt</a>**
 
 ![Lucas Cruikshank Net Worth And Biography](/uploads/lucas-cruikshank-net-worth-.webp)
 
@@ -135,3 +139,5 @@ Lucas Cruikshank's status is not publicly known.
 * Lucas Cruikshank sponsored and promoted several movies.
 * Lucas Cruikshank's first YouTube video was uploaded in 2008.
 * Lucas Cruikshank's family owns a lot of pets, including cats, dogs and birds.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

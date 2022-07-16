@@ -12,7 +12,7 @@ meta_Keywords: Derek Chauvin Net worth
 url: derek-chauvin-net-worth-bio-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-07T09:01:33.833Z
-updateDate: 2022-03-07T09:01:33.855Z
+updateDate: 2022-07-16T17:42:31.041Z
 featured_Image: /uploads/derek-chauvin-net-worth-bio-and-details.webp
 categories:
   - "Police "
@@ -80,6 +80,8 @@ Derek Chauvin was born on March 19, 1976 and he is 45 years old.
 
 As for Derek Chauvin, his birthday is March 19, 1976. It is estimated that he is about 45 years old and perhaps even older. The details of her family background are hard to come by, however, her mother was a stay-at-home mom and her father was a certified legal accountant. When he was younger, Chauvin's parents divorced but kept in touch. There have been a lot of stories about what happened to them.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/marcellus-wiley-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Marcellus Wiley</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/qitFifM5_fc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## Derek Chauvin Education:
@@ -101,6 +103,8 @@ Derek Chauvin earns $90,000 plus per month.
 ## Derek Chauvin Height:
 
 Derek Chauvin has height 5 feet 9 inches(176 cm) and weight 154 Lbs(70 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/tom-joyner-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Tom Joyner</a>**
 
 ![Derek Chauvin Net Worth And Biography](/uploads/derek-chauvin.webp)
 
@@ -124,3 +128,5 @@ Yes, Derek Chauvin is married.
 * Know as murder of George Floyd.
 * Criminal status incarcerated at MCF Oak Park Heights.
 * 2 counts of deprivation of rights under color of law 1 count of second-degree unintentional murder 1 count of third-degree murder 1 count of second-degree manslaughter.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

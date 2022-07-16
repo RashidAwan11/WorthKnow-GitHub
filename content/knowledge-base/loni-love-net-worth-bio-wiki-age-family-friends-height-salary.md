@@ -12,7 +12,7 @@ meta_Keywords: Loni Love Net Worth
 url: loni-love-net-worth-bio-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-08T07:31:06.268Z
-updateDate: 2022-03-08T07:31:06.293Z
+updateDate: 2022-07-16T17:26:34.361Z
 featured_Image: /uploads/loni-love-net-worth-boi-and-details.webp
 categories:
   - Actors
@@ -77,6 +77,8 @@ Loni Love was born on July 14, 1971 and she is 50 years old.
 
 Love was born in Detroit, Michigan, and grew up in Brewster-Douglass Housing Projects. Prior to his career as a comedian, she was an electrical engineer, an experience she spoke of in many of his programs. After graduating from Cass Technical High School in 1989, she worked part-time at General Motors setting doors for the 1993 Oldsmobile Cutlasses, a job that sparked his interest in electrical engineering. Love then obtained his degree in electrical engineering from Prairie View A&M University in Texas. While in Prairie View, she took a break from music and was a member of the Eta Beta chapter of Delta Sigma Theta. That's where she got the best comedy after winning the $ 50 competition and sang regularly during her college life.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/warrick-dunn-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Warrick Dunn</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/gMTxuJZzXDw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## Loni Love Education:
@@ -107,6 +109,8 @@ Loni Love earns approximately $32000 per month.
 
 Loni Love is 5 feet 4 inches( 1.67 m) and weighs 176 Lbs(80 kg).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/lance-stephenson-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Lance Stephenson</a>**
+
 ![Loni Love Net Worth And Biography](/uploads/loni-love-net-worth.webp)
 
 ## Is Loni Love Relationship Status Single/Married?
@@ -135,3 +139,5 @@ Loni Love is currently single.
 * In 2009, was named one of the Top 10 Comics to Watch by Variety.
 * Became a host of The Real talk show in 2013.
 * Wrote Love Him Or Leave Him, but Don't Get Stuck With the Tab, a book about relationships in 2013.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

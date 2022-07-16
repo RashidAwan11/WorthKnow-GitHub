@@ -13,7 +13,7 @@ meta_Keywords: David Grutman Net Worth
 url: david-grutman-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-15T10:02:32.740Z
-updateDate: 2022-03-15T10:20:27.666Z
+updateDate: 2022-07-16T16:57:12.907Z
 featured_Image: /uploads/david-grutman-net-worth-bio-and-details-.png
 categories:
   - Businessperson
@@ -78,6 +78,8 @@ David Grutman was born July 3, 1974 and he is 47 years old.
 
 David was born and raised in a Jewish family in Naples, Florida. He graduated from Barron G. Collier High School in 1993, and holds a degree in finance from the University of Florida. He married Isabela Rangel in 2016. They have two daughters, Kaia (born in 2017), and Vida (born in 2019).
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/tom-joyner-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Tom Joyner</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/juiCNxpDHII" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **David Grutman Education:**
@@ -99,6 +101,8 @@ David earns approxmiately $500,000 per month.
 ## **David Grutman Height:**
 
 David Grutman is 5 feet 11 inches and weighs 80 kg.
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/pouya-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Pouya</a>**
 
 ![David Grutman Net Worth And Biography](/uploads/david-grutman-net-worth-.png)
 
@@ -125,3 +129,5 @@ He has reestablished the Miami area as a contemporary hotspot by imagining dinin
 In 2008, Grutman opened the nightclub LIV at Fontainebleau after garnering wide acclaim for his prior work in founding the Miami Marketing Group (which specialised in seamlessly merging the fields of nightlife and entertainment). The Fontainebleau had just undergone an extensive renovation by the Soffer family, and it needed an anchor after-hours attraction.
 
 Immediately, LIV garnered worldwide buzz and a celebrity clientele, which it has continued to sustain over the past decade. LIV is especially beloved for its Sunday night party, which attracts world-famous athletes celebrating their championship wins, musicians’ release parties, and movie stars whenever they’re in town. The 18,000 square foot venue is one of the highest grossing nightclubs in the United States.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

@@ -12,7 +12,7 @@ meta_Keywords: Channing Crowder Net Worth
 url: channing-crowder-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-17T07:23:11.508Z
-updateDate: 2022-03-17T08:40:31.597Z
+updateDate: 2022-07-16T16:51:57.510Z
 featured_Image: /uploads/channing-crowder-net-worth-bio-and-details.webp
 categories:
   - American Football Player
@@ -79,6 +79,8 @@ Crowder was born at State College, Pennsylvania, the son of All-American linebac
 
 He collected all-American honours at PrepStar and the book ranked him among the top 10 Southeast players. He earned the All-American honours at Rivals.com and the team ranked him among the nation's 15 best players. As an adult, he recorded 114 tackles in 2001 and 7.5 sacks while running more than 800 yards. He has been named one of the top four linebackers in the state of Georgia by the Atlanta Journal-Constitution. He was a member of the MVP in 2001.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/maneet-chauhan-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Maneet Chauhan</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/XiuIlle52lQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## **Channing Crowder Education:**
@@ -102,6 +104,8 @@ Channing Crowder earns approximately $2 million per month.
 ## **Channing Crowder Height:**
 
 Channing Crowder height is 6 feet 2 inches(1.88 m) and weighs 249 Lbs(113 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/bobby-lytes-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Bobby Lytes</a>**
 
 ![Channing Crowder Net Worth And Biography](/uploads/channing-crowder-net-worth.webp)
 
@@ -135,3 +139,5 @@ Channing is married to wife Aja, and the couple have appeared together on VH1 re
 * Channing Crowder was recognized as an All-American while he played college football for the University of Florida.
 * While playing for the Miami Dolphins, Channing Crowder wore jersey number #52.
 * Crowder is on Twitter & Instagram, with more than 23k followers. He uploads clips and pictures of shows & programs on social media platforms and related to his personal life.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

@@ -10,7 +10,7 @@ meta_Keywords: Andy Samberg Net Worth
 url: andy-samberg-net-worth-bio-age-family-friends-height-salary
 author: Nicholas Samantha
 date: 2022-03-08T04:35:35.017Z
-updateDate: 2022-03-08T04:35:35.042Z
+updateDate: 2022-07-16T17:36:33.128Z
 featured_Image: /uploads/andy-samberg-net-worth-bio-and-details-.webp
 categories:
   - Actors
@@ -77,6 +77,8 @@ Andy Samberg August 18, 1978 Â in Berkeley, California and he is 43 years old.
 
 Andy Samberg's mother, Marjorie Isabel, is a schoolteacher, and his father, Joe, is a photographer. Samberg found out that his mother, Marjorie, was adopted, the daughter of a Sicilian father (Salvatore Maida) who had emigrated in 1925, and a Jewish mother (Ellen Philipsborn), who had come to the U.S. in 1938.
 
+**Also Read About the Net Worth of: <a href="https://worthknow.com/kerri-strug-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Kerri Strug</a>**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/xwwOIoZDds8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## Andy Samberg Education:
@@ -104,6 +106,8 @@ Andy Samberg earns approximately $200,000 per month.
 ## Andy Samberg Height:
 
 Andy Samberg is 5 feet 9 inches(177 cm) and weighs 177 Lbs(77 kg).
+
+**Also Read About the Net Worth of: <a href="https://worthknow.com/flex-alexander-net-worth-bio-wiki-age-family-friends-height-salary/" target="_blank" rel="noopener">Flex Alexander</a>**
 
 ![Andy Samberg Net Worth Biography](/uploads/andy-samberg-net-worth-.webp)
 
@@ -139,3 +143,5 @@ From 2003 to 2004, Andy appeared in the role of Aaron in the drama series, The â
 ## Personal Trainer:
 
 As his age has started to creep on him, Andy has got serious about working out. He makes sure that he is working out regularly. Andy even tries to find space for exercising in his cramped schedules. He has also started to watch what he is eating and has cut back on drinks. Even for snacking, he prefers to go for healthy options such as celery and carrots dipped in almond butter.
+
+**Source: <a href="https://worthknow.com/" target="_blank" rel="noopener">Worthknow.com</a>**

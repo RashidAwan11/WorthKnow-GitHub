@@ -1,7 +1,7 @@
 ---
 title: Penn And Teller Net Worth, Bio, Wiki, Age, Family, Friends, Height & Salary
 type: knowledge-base
-draft: true
+draft: false
 trending: false
 trendname: Penn And Teller
 seo_title: Penn And Teller Net Worth, Bio, Wiki, Age, Family, Friends, Height &

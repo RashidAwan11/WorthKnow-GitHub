@@ -12,8 +12,8 @@ meta_Description: Penn and Teller are a unique team of magicians. They have a
 meta_Keywords: Penn And Teller Net Worth
 url: penn-and-teller-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
-date: 2022-07-15T08:10:58.961Z
-updateDate: 2022-07-15T08:10:57.669Z
+date: 2022-07-17T07:04:14.186Z
+updateDate: 2022-07-17T07:04:15.368Z
 featured_Image: /uploads/penn-and-teller-net-worth-bio-and-details.webp
 categories:
   - Actors

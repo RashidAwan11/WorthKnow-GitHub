@@ -1,7 +1,7 @@
 ---
 title: Malki Means King Net Worth, Bio, Wiki, Age, Family, Friends, Height & Salary
 type: knowledge-base
-draft: true
+draft: false
 trending: false
 trendname: Malki Means King Net Worth
 seo_title: Malki Means King Net Worth, Bio, Wiki, Age, Family, Friends, Height &

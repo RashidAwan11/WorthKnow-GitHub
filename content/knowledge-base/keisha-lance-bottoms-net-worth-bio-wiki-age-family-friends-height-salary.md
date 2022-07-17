@@ -2,7 +2,7 @@
 title: Keisha Lance Bottoms Net Worth, Bio, Wiki, Age, Family, Friends, Height &
   Salary
 type: knowledge-base
-draft: true
+draft: false
 trending: false
 trendname: Keisha Lance Bottoms
 seo_title: Keisha Lance Bottoms Net Worth, Bio, Age, Family, Height & Salary - WorthKnow
@@ -12,8 +12,9 @@ meta_Description: Keisha Lance Bottoms is the current Mayor of Atlanta, and she
 meta_Keywords: Keisha Lance Bottoms Net Worth
 url: keisha-lance-bottoms-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
-date: 2022-07-14T11:12:10.851Z
-updateDate: 2022-07-14T11:12:10.386Z
+date: 2022-07-17T07:07:48.916Z
+updateDate: 2022-07-17T07:07:48.262Z
+featured_Image: /uploads/keisha-lance-bottoms-net-worth-bio-and-details-.webp
 categories:
   - politicians
 ---
@@ -114,6 +115,8 @@ Keisha Lance Bottoms is 5 feet 5 inches tall.
 ## **Is Keisha Lance Bottoms Single?** 
 
 Keisha Lance Bottoms is married to Derek W. Bottoms, and they have four children together.
+
+![Keisha Lance Bottoms Net Worth Biography](/uploads/keisha-lance-bottoms-net-worth.webp)
 
 ## **Keisha Lance Bottoms Achievements:**
 

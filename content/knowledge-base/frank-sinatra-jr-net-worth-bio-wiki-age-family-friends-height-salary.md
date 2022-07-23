@@ -36,19 +36,19 @@ faqs:
         <td>
           <strong>Date of Birth</strong>
         </td>
-        <td>19 November 1995</td>
+        <td>January 10, 1944</td>
       </tr>
       <tr>
         <td>
           <strong>Gender</strong>
         </td>
-        <td>Female</td>
+        <td>Male</td>
       </tr>
       <tr>
         <td>
           <strong>Height:</strong>
         </td>
-        <td>1.64 meters</td>
+        <td>5 Feet 6 in</td>
       </tr>
       <tr>
         <td>
@@ -84,21 +84,19 @@ Frank Sinatra Jr. has been married twice. His first marriage, to Sandra Maureen 
 
 ## **Frank Sinatra jr Professional Career:**
 
- Frank Sinatra Junior, or Frankie as he is popularly known, is an American singer and actor.
+Frank Sinatra Junior, or Frankie as he is popularly known, is an American singer and actor.
 
 He started his career in entertainment as a child actor, appearing on his father's television show Villa Victoria in 1982. He later embarked on a solo singing career, releasing several albums including his self-titled debut album in 1994. In addition to his music career, he has also appeared in several films and television shows.
 
 ## **Frank Sinatra jr Facts:**
 
-1. He is the son of legendary singer Frank Sinatra and Nancy Barbato Sinatra
-
-2. Sinatra Jr. started his musical career in his teens, touring with his father
-
-3. In addition to his musical career, he has also worked as an actor and television
+* He is the son of legendary singer Frank Sinatra and Nancy Barbato Sinatra.
+* Sinatra Jr. started his musical career in his teens, touring with his father.
+* In addition to his musical career, he has also worked as an actor and television.
 
 ## **How Old is Frank Sinatra jr?** 
 
-He is currently 76 years old
+He is currently 76 years old.
 
 ## **Frank Sinatra jr Net Worth:**
 
@@ -118,17 +116,14 @@ He is currently single.
 
 ## **Frank Sinatra jr Achievements:** 
 
-Frank Sinatra Jr. was certainly no slouch when it came to achievements. Following in the footsteps of his legendary father, he carved out a successful career in music and entertainment. 
-
-As a musician, Sinatra Jr. released several albums over the years, including ''Close Up,'' ''That Face!,'' and ''New Yorkland.'' He also toured with numerous symphony orchestras across America and Europe, performing both as a solo artist and as part of his father's iconic Rat Pack. 
-
-In addition to his musical accomplishments, Sinatra Jr. also dabbled in acting. He appeared in episodes of popular television shows like ''Batman'' and ''Get Smart,'' and had small roles in movies like
+* Frank Sinatra Jr. was certainly no slouch when it came to achievements. Following in the footsteps of his legendary father, he carved out a successful career in music and entertainment. 
+* As a musician, Sinatra Jr. released several albums over the years, including ''Close Up,'' ''That Face!,'' and ''New Yorkland.'' He also toured with numerous symphony orchestras across America and Europe, performing both as a solo artist and as part of his father's iconic Rat Pack. 
+* In addition to his musical accomplishments, Sinatra Jr. also dabbled in acting. He appeared in episodes of popular television shows like ''Batman'' and ''Get Smart,'' and had small roles in movies like.
 
 ## **Frank Sinatra jr Social Media:**
 
-* Twitter account is with the user name of
-* Instagram account is with the user name of
-* Facebook account is with the user name of
+* Twitter account is with the user name of <a href="https://mobile.twitter.com/fsinatrajr23" target="_blank" rel="nofollow"   rel="noopener">@fsinatrajr23</a>
+* Instagram account is with the user name of <a href="https://www.instagram.com/sinatra/" target="_blank" rel="nofollow"   rel="noopener">sinatra</a>
 
 ## **Frank Sinatra jr Hobbies :**
 

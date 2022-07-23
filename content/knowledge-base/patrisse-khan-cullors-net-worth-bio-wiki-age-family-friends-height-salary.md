@@ -2,7 +2,7 @@
 title: Patrisse Khan Cullors Net Worth, Bio, Wiki, Age, Family, Friends, Height
   & Salary
 type: knowledge-base
-draft: true
+draft: false
 trending: false
 trendname: Patrisse Khan Cullors
 seo_title: Patrisse Khan Cullors Net Worth, Bio, Wiki, Age, Family, Friends,
@@ -13,7 +13,7 @@ meta_Description: Patrisse Khan-Cullors is a co-founder of Black Lives.  2016,
 meta_Keywords: Patrisse Khan Cullors Net Worth
 url: patrisse-khan-cullors-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
-date: 2022-07-23T09:21:56.512Z
+date: 2022-07-23T09:33:41.289Z
 updateDate: 2022-07-23T09:21:55.732Z
 featured_Image: /uploads/patrisse-khan-cullors-net-worth-bio-and-details-.webp
 categories:

@@ -12,9 +12,11 @@ meta_Description: Frank Sinatra Jr. was born in 1944, the only child of Frank
 meta_Keywords: Frank Sinatra Jr Net Worth
 url: frank-sinatra-jr-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
-date: 2022-07-23T07:54:14.776Z
-updateDate: 2022-07-23T07:54:14.823Z
+date: 2022-07-23T08:43:57.636Z
+updateDate: 2022-07-23T08:43:57.127Z
 featured_Image: /uploads/frank-sinatra-jr-net-worth-bio-and-details.webp
+categories:
+  - Actors
 faqs:
   - question: How many cars does Frank Sinatra jr have?
     answer: He has 3 cars.

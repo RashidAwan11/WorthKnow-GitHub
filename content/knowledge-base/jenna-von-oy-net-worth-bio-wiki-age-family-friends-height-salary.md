@@ -10,8 +10,8 @@ meta_Description: She is an actress and has starred in a number of TV shows and
 meta_Keywords: Jenna Von Oy Net Worth
 url: jenna-von-oy-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
-date: 2022-07-23T08:51:32.724Z
-updateDate: 2022-07-23T08:51:32.755Z
+date: 2022-07-23T09:02:54.403Z
+updateDate: 2022-07-23T09:02:53.927Z
 featured_Image: /uploads/jenna-von-oy-net-worth-bio-and-details-.webp
 categories:
   - Singer
@@ -86,17 +86,14 @@ Her Daughter, Gia James, was born in 2014, and their son, Stone James, was born 
 
 ## **Jenna Von oy Professional Career:**
 
-Jenna Von Oy is an actress and singer most notable for playing Six on the sitcom Blossom. After Blossom ended, Jenna Von Oy started focusing more on her music career. She released two albums, "Bellyful" in 2004 and "The Key" in 2006. Jenna Von Oy also had a recurring role as Tiffany on the show The Parkers from 1999-2004.
-
-She has made her money from her successful career as an actress and singer. Jenna Von Oy is also a songwriter, and she has co-written songs for other artists, such as Ashley Tisdale and Miley Cyrus.
+* Jenna Von Oy is an actress and singer most notable for playing Six on the sitcom Blossom. After Blossom ended, Jenna Von Oy started focusing more on her music career. She released two albums, "Bellyful" in 2004 and "The Key" in 2006. Jenna Von Oy also had a recurring role as Tiffany on the show The Parkers from 1999-2004.
+* She has made her money from her successful career as an actress and singer. Jenna Von Oy is also a songwriter, and she has co-written songs for other artists, such as Ashley Tisdale and Miley Cyrus.
 
 ## **Jenna Von oy Facts:** 
 
-1. Jenna Von Oy is from St. Louis, Missouri.
-
-2. Jenna Von Oy is of German, Irish, and Dutch descent.
-
-3. Jenna Von Oy's parents are both musicians.
+* Jenna Von Oy is from St. Louis, Missouri.
+* Jenna Von Oy is of German, Irish, and Dutch descent.
+* Jenna Von Oy's parents are both musicians.
 
 ## **How Old is Jenna Von oy?**
 
@@ -128,9 +125,8 @@ Jenna Von Oy is married to Brad Bratcher.
 
 ## **Jenna Von oy Social Media:**
 
-* Twitter account is with the user name of 
-* Instagram account is with the user name of 
-* Facebook account is with the user name of 
+* Twitter account is with the user name of <a href="https://twitter.com/jennavonoy" target="_blank" rel="nofollow"   rel="noopener">@JennavonOy</a>
+* Instagram account is with the user name of <a href="https://www.instagram.com/jennavonoy/" target="_blank" rel="nofollow"   rel="noopener">jennavonoy</a>
 
 ## **Jenna Von oy Hobbies:**
 

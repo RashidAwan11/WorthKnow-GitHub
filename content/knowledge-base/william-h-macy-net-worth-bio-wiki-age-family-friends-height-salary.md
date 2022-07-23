@@ -81,6 +81,8 @@ Macy soon developed an interest in theater and after high school, he attended th
 
 Macy's big break came in the form of a role on the television series "Room 222" in 1972. From there, he went on to appear in films such as "Fargo" (1996), for which he earned an Oscar nomination for Best Supporting Actor, "Magnolia" (1999), and "Seabiscuit" (2003).
 
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GWZQrZ65DsM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 ## **William h. Macy Personal life:**
 
 Macy has been married to actress Felicity Huffman since 1997. The couple has two daughters together: Sophia Grace, born in 2000, and Georgia Grace, born in 2002. Macy also has a son, William H. Macy III, from a previous marriage.
@@ -121,7 +123,9 @@ No, Macy has been married to actress Felicity Huffman
 
 ## **William h. Macy Achievements:**
 
-William H. Macy is an American actor, director, screenwriter, and producer. He has been nominated for four Emmy Awards and two Golden Globe Awards, winning one each. His film credits include Fargo, The Cooler, Wild Hogs, and Rango. He also starred in the highly acclaimed television series Shameless as Frank Gallagher. Recently, he played the role of President Reagan in the critically acclaimed miniseries The Stand. 
+William H. Macy is an American actor, director, screenwriter, and producer. He has been nominated for four Emmy Awards and two Golden Globe Awards, winning one each. His film credits include Fargo, The Cooler, Wild Hogs, and Rango.
+
+He also starred in the highly acclaimed television series Shameless as Frank Gallagher. Recently, he played the role of President Reagan in the critically acclaimed miniseries The Stand. 
 
 Macy's first big break came when he was cast in the Coen brothers' film Fargo (1996). His performance as Jerry Lundegaard earned him nominations for both an Academy Award and a Golden Globe Award for Best Supporting Actor. 
 

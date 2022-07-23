@@ -54,7 +54,7 @@ faqs:
         <td>
           <strong>Profession</strong>
         </td>
-        <td>Actor</td>
+        <td>Singer</td>
       </tr>
       <tr>
         <td>

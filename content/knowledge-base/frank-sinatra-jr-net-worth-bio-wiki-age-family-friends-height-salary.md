@@ -112,6 +112,8 @@ Frank Sinatra jr Salary's true net worth is closer to $500 million, while others
 
 He is 6 feet tall.
 
+![Frank Sinatra Jr Net Worth Biography](/uploads/frank-sinatra-jr-net-worth.webp)
+
 ## **Is Frank Sinatra Jr Single?** 
 
 He is currently single.

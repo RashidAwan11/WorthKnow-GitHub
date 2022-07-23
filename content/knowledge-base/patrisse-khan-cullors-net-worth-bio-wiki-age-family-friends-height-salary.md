@@ -18,6 +18,11 @@ updateDate: 2022-07-23T09:03:43.452Z
 featured_Image: /uploads/patrisse-khan-cullors-net-worth-bio-and-details-.webp
 categories:
   - Artist
+faqs:
+  - question: What is the ethinicity of Patrisse Khan-Cullors?
+    answer: Patrisse Khan-Cullors is African American.
+  - question: What is the religion of Patrisse Khan-Cullors?
+    answer: Patrisse Khan-Cullors is a Christian.
 ---
 <figure class="wp-block-table is-style-stripes">
   <table>
@@ -120,9 +125,8 @@ Patrisse’s activism began with organising around issues impacting her family a
 
 ## **Patrisse Khan-cullors Social Media:**
 
-* Twitter account is with the user name of 
-* Instagram account is with the user name of 
-* Facebook account is with the user name of 
+* Instagram account is with the user name of <a href="https://www.instagram.com/osopepatrisse/" target="_blank" rel="nofollow"   rel="noopener">osopepatrisse</a>
+* Facebook account is with the user name of <a href="https://www.facebook.com/people/Patrisse-Khan-Cullors/727718905/" target="_blank" rel="nofollow"   rel="noopener">Patrisse Khan-Cullors </a>
 
 ## **Patrisse Khan-cullors Hobbies:**
 

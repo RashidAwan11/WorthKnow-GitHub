@@ -78,6 +78,8 @@ Sinatra Jr. started his musical career in his teens, touring with his father as 
 
 In addition to his musical career, Sinatra Jr. has also worked as an actor and television personality. He's appeared in films like The Manchurian Candidate and Cannonball Run II and on TV shows like Miami Vice and The Sopranos. He currently hosts a radio show called Frank Sinatra: The Voice of Our Time.
 
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7e1aIUiGuF8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 ## **Frank Sinatra jr Personal life:**
 
 Frank Sinatra Jr. has been married twice. His first marriage, to Sandra Maureen Casey, lasted from 1971 to 1983 and produced two children, Michael and Amanda. His second marriage, to Cynthia McMurry, lasted from 2003 to 2016. He does not have any children with McMurry.Sinatra Jr. lives in Los Angeles and spends his time dividing his time between music and golf.

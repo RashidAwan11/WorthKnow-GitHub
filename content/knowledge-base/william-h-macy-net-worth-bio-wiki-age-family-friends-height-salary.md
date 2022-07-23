@@ -11,8 +11,8 @@ meta_Description: Actor William H. Macy has a net worth of $25 million. He was
 meta_Keywords: William H. Macy Net Worth
 url: william-h-macy-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
-date: 2022-07-23T09:22:23.704Z
-updateDate: 2022-07-23T09:22:23.739Z
+date: 2022-07-23T09:33:04.530Z
+updateDate: 2022-07-23T09:33:03.755Z
 featured_Image: /uploads/william-h.-macy-net-worth-bio-and-details-.webp
 categories:
   - Actors
@@ -30,26 +30,26 @@ faqs:
           <strong>Net Worth</strong>
         </td>
         <td>
-          <strong>$2 million</strong>
+          <strong>$25 million</strong>
         </td>
       </tr>
       <tr>
         <td>
           <strong>Date of Birth</strong>
         </td>
-        <td>19 November 1995</td>
+        <td>March 13, 1950</td>
       </tr>
       <tr>
         <td>
           <strong>Gender</strong>
         </td>
-        <td>Female</td>
+        <td>Male</td>
       </tr>
       <tr>
         <td>
           <strong>Height:</strong>
         </td>
-        <td>1.64 meters</td>
+        <td>1.75 Meters</td>
       </tr>
       <tr>
         <td>
@@ -95,11 +95,9 @@ Macy has also been nominated for an Academy Award, a Tony Award, and two Emmy Aw
 
 ## **William h. Macy Facts:**
 
-William H. Macy is a frugal man, despite his $25 million net worth.
-
-Macy's big break came in the form of a role on the television series "Room 222" in 1972.
-
-Macy has been married to actress Felicity Huffman since 1997.
+* William H. Macy is a frugal man, despite his $25 million net worth.
+* Macy's big break came in the form of a role on the television series "Room 222" in 1972.
+* Macy has been married to actress Felicity Huffman since 1997.
 
 ## **How Old is William h. Macy?**
 
@@ -107,19 +105,21 @@ William H. Macy is 69 years old.
 
 ## **William h. Macy Net Worth:**
 
-$25 million
+$25 million.
 
 ## **William h. Macy Salary:**
 
-$350,000 per episode of Shameless (as of 2016)
+$350,000 per episode of Shameless (as of 2016).
 
 ## **William h. Macy Height:**
 
-5 feet 9 inches (1.75 m)
+5 feet 9 inches (1.75 m).
+
+![William H. Macy Net Worth Biography](/uploads/william-h.-macy-net-worth-.webp)
 
 ## **Is William h. Macy Single?** 
 
-No, Macy has been married to actress Felicity Huffman
+No, Macy has been married to actress Felicity Huffman.
 
 ## **William h. Macy Achievements:**
 

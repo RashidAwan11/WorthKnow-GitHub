@@ -16,6 +16,8 @@ author: Nicholas Samantha
 date: 2022-07-23T09:03:43.412Z
 updateDate: 2022-07-23T09:03:43.452Z
 featured_Image: /uploads/patrisse-khan-cullors-net-worth-bio-and-details-.webp
+categories:
+  - Artist
 ---
 <figure class="wp-block-table is-style-stripes">
   <table>
@@ -61,3 +63,75 @@ featured_Image: /uploads/patrisse-khan-cullors-net-worth-bio-and-details-.webp
     </tbody>
   </table>
 </figure>
+
+## **Introduction:**
+
+Did you know that the co-founder of Black Lives Matter, Patrisse Cullors, is a millionaire? That's right! Despite all her work advocating for racial justice and equality, Cullors has managed to accumulate a sizable net worth. Find out more about her impressive fortune in today's blog post.
+
+## **Patrisse Khan-cullors Biography:**
+
+Patrisse Khan-Cullors is an American artist, organizer, and civil rights leader who co-founded Black Lives Matter. Born in Los Angeles to a working-class African American family, she grew up witnessing police brutality firsthand. After surviving several King County Sheriff's Department raids on her neighborhood, she became determined to fight back against the systemic racism and injustice she saw around her. Khan-Cullors went on to study political science at Pepperell College and ultimately earn her MFA from UCLA.
+
+Through her artwork and activism, Khan-Cullors has worked tirelessly to illuminate the experiences of marginalized communities and give voice to the #BlackLivesMatter movement. 
+
+## **Patrisse Khan-cullors Personal life:**
+
+In 2016, Khan-Cullors married Janaya Khan, a fellow Black Lives Matter leader and co-founder of the international human rights organization Color of Change. The couple has two sons together.
+
+## **Patrisse Khan-cullors Professional Career:**
+
+Patrisse Khan-Cullors is a co-founder of Black Lives Matter, and has been on the forefront of racial justice activism for over a decade. After earning her degree in Religion and Sociology from UCLA, Patrisse began working with incarcerated youth in Los Angeles, and soon recognized the power of organizing to create social change. In 2013, she co-founded Black Lives Matter with Alicia Garza and Opal Tometti, in response to the acquittal of George Zimmerman in the shooting death of Trayvon Martin.
+
+Since then, Black Lives Matter has become one of the most influential movements in America, organizing mass mobilizations against police violence and systemic racism across the country. Patrisse is also author of the New York Times best-selling book, "When They Call You a Terrorist: A Black Lives Matter Memoir."
+
+In addition to her work with Black Lives Matter, Patrisse is the founder of Dignity and Power Now, an organization that works to end mass incarceration and police brutality.
+
+## **Patrisse Khan-cullors Facts:**
+
+* Patrisse Khan-Cullors is a self-proclaimed "warrior" for racial justice.
+* She is the co-founder of Black Lives Matter, one of the largest and most influential social justice movements in recent history.
+* Khan-Cullors has an estimated net worth of $3 million dollars.
+
+## **How Old is Patrisse Khan-cullors?**
+
+Patrisse Khan-Cullors was born on June 26, 1985, making her 34 years old at the time of this writing.
+
+## **Patrisse Khan-cullors Net Worth**
+
+She has an estimated net worth of $3 million dollars.
+
+## **Patrisse Khan-cullors Salary:**
+
+As a co-founder of Black Lives Matter, Khan-Cullors does not draw a salary from the organization.
+
+## **Patrisse Khan-cullors Height:**
+
+Patrisse Khan-Cullors is 5 feet 4 inches tall.
+
+## **Is Patrisse Khan-cullors Single?** 
+
+No, Patrisse Khan-Cullors is married to fellow Black Lives Matter leader Janaya Khan.
+
+## **Patrisse Khan-cullors Achievements:**
+
+Patrisse Khan-Cullors is an artist, organiser, and freedom fighter from Los Angeles, CA. She is the co-founder of Black Lives Matter, a national organisation working to end state-sanctioned violence against black people. Patrisse has been recognized as one of the most influential people in the world by TIME Magazine, and one of Glamour’s “35 Women Under 35 Who Are Changing The World.” In 2016, she was awarded the Sydney Peace Prize for her work with Black Lives Matter.
+
+Patrisse’s activism began with organising around issues impacting her family and community in South Central Los Angeles. After the acquittal of George Zimmerman in the Trayvon Martin murder case, Patrisse co-founded Black Lives Matter with Alicia Garza and Opal Tometti.
+
+## **Patrisse Khan-cullors Social Media:**
+
+* Twitter account is with the user name of 
+* Instagram account is with the user name of 
+* Facebook account is with the user name of 
+
+## **Patrisse Khan-cullors Hobbies:**
+
+When she's not fighting the good fight, Patrisse enjoys spending time with her family, reading, and hiking.
+
+## **Patrisse Khan-cullors Education:**
+
+Patrisse graduated from UCLA with a degree in Religion and Sociology.
+
+## **Patrisse Khan-cullors Relationship Status**
+
+Married.

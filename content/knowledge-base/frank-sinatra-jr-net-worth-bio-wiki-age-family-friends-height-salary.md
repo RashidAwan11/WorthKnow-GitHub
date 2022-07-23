@@ -31,7 +31,7 @@ faqs:
           <strong>Net Worth</strong>
         </td>
         <td>
-          <strong>$2 million</strong>
+          <strong>$100 million</strong>
         </td>
       </tr>
       <tr>

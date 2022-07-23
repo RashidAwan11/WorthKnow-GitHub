@@ -79,6 +79,8 @@ Patrisse Khan-Cullors is an American artist, organizer, and civil rights leader 
 
 Through her artwork and activism, Khan-Cullors has worked tirelessly to illuminate the experiences of marginalized communities and give voice to the #BlackLivesMatter movement. 
 
+<iframe width="560" height="315" src="https://www.youtube.com/embed/IxqAHLNi2mM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 ## **Patrisse Khan-cullors Personal life:**
 
 In 2016, Khan-Cullors married Janaya Khan, a fellow Black Lives Matter leader and co-founder of the international human rights organization Color of Change. The couple has two sons together.
@@ -112,6 +114,8 @@ As a co-founder of Black Lives Matter, Khan-Cullors does not draw a salary from 
 ## **Patrisse Khan-cullors Height:**
 
 Patrisse Khan-Cullors is 5 feet 4 inches tall.
+
+![Patrisse Khan-cullors Net Worth Biography](/uploads/patrisse-khan-cullors-net-worth-.webp)
 
 ## **Is Patrisse Khan-cullors Single?** 
 

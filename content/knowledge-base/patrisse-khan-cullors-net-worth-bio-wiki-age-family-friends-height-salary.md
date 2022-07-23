@@ -13,8 +13,8 @@ meta_Description: Patrisse Khan-Cullors is a co-founder of Black Lives.  2016,
 meta_Keywords: Patrisse Khan Cullors Net Worth
 url: patrisse-khan-cullors-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
-date: 2022-07-23T09:03:43.412Z
-updateDate: 2022-07-23T09:03:43.452Z
+date: 2022-07-23T09:21:56.512Z
+updateDate: 2022-07-23T09:21:55.732Z
 featured_Image: /uploads/patrisse-khan-cullors-net-worth-bio-and-details-.webp
 categories:
   - Artist
@@ -75,7 +75,9 @@ Did you know that the co-founder of Black Lives Matter, Patrisse Cullors, is a m
 
 ## **Patrisse Khan-cullors Biography:**
 
-Patrisse Khan-Cullors is an American artist, organizer, and civil rights leader who co-founded Black Lives Matter. Born in Los Angeles to a working-class African American family, she grew up witnessing police brutality firsthand. After surviving several King County Sheriff's Department raids on her neighborhood, she became determined to fight back against the systemic racism and injustice she saw around her. Khan-Cullors went on to study political science at Pepperell College and ultimately earn her MFA from UCLA.
+Patrisse Khan-Cullors is an American artist, organizer, and civil rights leader who co-founded Black Lives Matter. Born in Los Angeles to a working-class African American family, she grew up witnessing police brutality firsthand. 
+
+After surviving several King County Sheriff's Department raids on her neighborhood, she became determined to fight back against the systemic racism and injustice she saw around her. Khan-Cullors went on to study political science at Pepperell College and ultimately earn her MFA from UCLA.
 
 Through her artwork and activism, Khan-Cullors has worked tirelessly to illuminate the experiences of marginalized communities and give voice to the #BlackLivesMatter movement. 
 

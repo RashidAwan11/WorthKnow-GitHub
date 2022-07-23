@@ -1,7 +1,7 @@
 ---
 title: Jenna Von Oy Net Worth, Bio, Wiki, Age, Family, Friends, Height & Salary
 type: knowledge-base
-draft: true
+draft: false
 trending: false
 trendname: Jenna Von Oy
 seo_title: Jenna Von Oy Net Worth, Age, Family, Friends, Height & Salary - Worthknow
@@ -10,8 +10,8 @@ meta_Description: She is an actress and has starred in a number of TV shows and
 meta_Keywords: Jenna Von Oy Net Worth
 url: jenna-von-oy-net-worth-bio-wiki-age-family-friends-height-salary
 author: Nicholas Samantha
-date: 2022-07-23T09:02:54.403Z
-updateDate: 2022-07-23T09:02:53.927Z
+date: 2022-07-23T09:34:09.458Z
+updateDate: 2022-07-23T09:34:08.715Z
 featured_Image: /uploads/jenna-von-oy-net-worth-bio-and-details-.webp
 categories:
   - Singer

@@ -76,6 +76,8 @@ Jenna Von Oy (born Jennifer Lynn Oyster; December 2, 1977) is an American actres
 
 Jenna was born in St. Louis, Missouri. Her father is of German descent, and her mother is of Irish and Dutch ancestry. Jenna grew up in a musical family; her parents were both musicians, and she began playing the piano at an early age. She attended the University of Southern California, where she studied music and theatre.
 
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Mn2QGQEln9s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 ## **Jenna Von oy Personal life:**
 
 Jenna is a really down to earth person and is really close with her family. She seems to be really close with her parents and brothers. Her mother passed away a few years ago from cancer, which was obviously a really difficult time for Jenna and her family.

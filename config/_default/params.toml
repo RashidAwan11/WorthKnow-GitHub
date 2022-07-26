@@ -3,7 +3,6 @@ logo = "/uploads/worthknow-logo.svg"
 icon = "/uploads/worthknow-logo-1-.svg"
 tagline = "The Net Worth of the Richest People in the World"
 contacteMail = "info.worthknow@gmail.com"
-scroll_section = []
 headerText = "**Email us at: info.worthknow (at) gmail.com if you have any Queries :)**"
 
 [fonts]
@@ -41,17 +40,17 @@ siteinstagramAccount = ""
 sitepinterestAccount = ""
 siteYouTubeAccount = ""
 
-[[img_section]]
-imgcat = "Actors"
+[[scroll_section]]
+scrollcat = "Actors"
 
-[[img_section]]
-imgcat = "Rapper"
+[[scroll_section]]
+scrollcat = "Rapper"
 
-[[img_section]]
-imgcat = "Singer"
+[[scroll_section]]
+scrollcat = "Singer"
 
-[[img_section]]
-imgcat = "Writer"
+[[scroll_section]]
+scrollcat = "Writer"
 
 [[img_section]]
 imgcat = "Richest Celebrities"
